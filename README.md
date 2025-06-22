@@ -16,7 +16,7 @@
 <p align="center">
 ︵ֺ︵     ㅤ𝜚        ۪    ⠀ ⪩⪨
 <p align="center">
-၄⋆၃  ៸៸៸ cherub / 17 ♡
+၄⋆၃  ៸៸៸ cherub / 18 ♡
 <p align="center">
   ฅ ฅ    infp ⸝⸝ they / she  ౨ 
 <p align="center">
