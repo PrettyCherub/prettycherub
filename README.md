@@ -32,8 +32,9 @@
 
 **Pronoun page** ➺ <a href="https://en.pronouns.page/@PrettyCherub">CLICK HERE</a>
 
-
 **Kins** ➺ Jem  (Jem) and Shining Glitter Cookie (Cookie Run Kingdom)
+
+**BYF** ➺ I don't care what people ship, ship discourse is stupid. I personally do not ship anything deemed problematic but my friends might.. and that is okay, just hide or block. The people at the pro-tree are also my friends!!! (I LOVE YALL) | I also will not shut up about my interests :3 
 
 <h3 strong div align="center"> 
 We are a system - only close people get system info, you'll most likely be talking with our host who fronts the most
