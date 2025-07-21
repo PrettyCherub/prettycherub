@@ -34,7 +34,8 @@
 
 **Kins** ➺ Jem  (Jem) and Shining Glitter Cookie (Cookie Run Kingdom)
 
-**BYF** ➺ I don't care what people ship, ship discourse is stupid. I personally do not ship anything deemed problematic but my friends might.. and that is okay, just hide or block. I personally do not agree with darkship but if they arent bothering or harming anyone then 🤷🏼‍♀️ | I also will not shut up about my interests, ESPECIALLY WWE OR JEM.
+**BYF** ➺ I am a prokisser (a term made by my friend @greenbeanx3)this means i am NOT A PROSHIPPER but I have friends who are. [Click here for more info](
+https://www.tumblr.com/greenbeanx3/789524135791476736/prokisser-flag): | I also will not shut up about my interests, ESPECIALLY WWE OR JEM.
 
 <h3 strong div align="center"> 
 We are a system - only close people get system info, you'll most likely be talking with our host who fronts the most
