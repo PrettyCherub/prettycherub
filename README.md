@@ -35,8 +35,7 @@
 
 **Kins** ➺ Jem  (Jem) + Shining Glitter Cookie (Cookie Run Kingdom) + Rhea Ripley (WWE)
 
-**BYF** ➺ I am a prokisser (a term made by my friend @greenbeanx3) this means i am **NOT A PROSHIPPER** but I have friends who are. [Click here for more info](
-https://www.tumblr.com/greenbeanx3/789524135791476736/prokisser-flag) | I also will not shut up about my interests, ESPECIALLY WWE OR JEM.
+**BYF** ➺ I am a "proshipper" meaning I don't care what people ship, personally myself I dont ship anything deemed problematic. I'm just anti-harassment and believe people shouldn't be attacked for their ships. | I also will not shut up about my interests, ESPECIALLY WWE OR JEM.
 
 We are a system - only close people get system info, you may ask whos fronting (mostly our host). Alter(s): who also play ponytown: @AngelicArcee + @CarlytheClown
 
@@ -215,8 +214,7 @@ We are a system - only close people get system info, you may ask whos fronting (
 ![]()
 ![]()
 
-
-
+</details>
 
 
     
