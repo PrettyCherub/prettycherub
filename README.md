@@ -214,12 +214,12 @@ We are a system - only close people get system info, you may ask whos fronting (
 ![](https://64.media.tumblr.com/1be5b48c0f900544292aee5cc7f99816/b00b53c79d3e84e3-3d/s100x200/b255025a39d1fc7d37e5cff449479683df18c90a.gifv)
 ![](https://64.media.tumblr.com/c671a8b7b4211049e196a816a6b4c0c2/b00b53c79d3e84e3-3e/s100x200/f989540ecf0a094e293157096166d58a48ecdcfc.gifv)
 ![](https://64.media.tumblr.com/91c458c4169a6ec0886f3b4691f9c20c/08936ae7eb59b5e4-b2/s250x400/86a1df20537c2c323815e71f1ef24150b98bf0c8.pnj)
-![]()
-![]()
-![]()
-![]()
-![]()
-![]()
+![](https://64.media.tumblr.com/b968b04f95a7dd174450e22bca7224ec/08936ae7eb59b5e4-43/s250x400/daa6120f60530fc6c88c188eebdfc88053a1a77e.pnj)
+![](https://64.media.tumblr.com/e3367a1d9b0091a15395c95e958e873c/08936ae7eb59b5e4-17/s250x400/8db68977b2ae6f999b82e3b26d5c5f650805e28d.pnj)
+![](https://64.media.tumblr.com/20e732d3d2851c571a9901603888fbee/c8dec7b9245f3a71-29/s250x400/464d096643959afd4b0fdc2a097720cb465d5354.pnj)
+![](https://64.media.tumblr.com/02e33667a7cac16a2f8413e1e2e45e62/6672f487bca8affa-80/s100x200/370ebf2930924bdd9e0883e435c850d5bad3fcba.gifv)
+![](https://64.media.tumblr.com/f76d508ce132d5683e46e2d807c0746f/3cb28cd719dbb8bf-cb/s250x400/63f7cf424914af3055bc6ee8b91a4556e6933776.pnj)
+![](https://64.media.tumblr.com/5aa94f0eaa379951c21ed88fdf4d7cab/acc4d4b433010d16-fa/s250x400/fbb89f40a08ac72c82736bdd3692fc0b9bfd35a9.pnj)
 ![]()
 ![]()
 ![]()
@@ -291,5 +291,3 @@ We are a system - only close people get system info, you may ask whos fronting (
 </h2 div> 
 
 **• [DeadlyClowning](https://github.com/deadlyclowning): Symbols and inspo! :D
-
-
