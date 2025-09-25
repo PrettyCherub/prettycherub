@@ -35,9 +35,9 @@
 
 **Kins** ➺ Jem  (Jem) + Shining Glitter Cookie (Cookie Run Kingdom) + Rhea Ripley (WWE)
 
-**BYF** ➺ I am a "proshipper" meaning I don't care what people ship, personally myself I dont ship anything deemed problematic. I'm just anti-harassment and believe people shouldn't be attacked for their ships. | I also will not shut up about my interests, ESPECIALLY WWE OR JEM.
+**BYF** ➺ I think ship discourse is stupid, I don't care what people ship in their freetime so you can call me "Proship" (A pro-shipper or proshipper is a fan who opposes the anti-shipper movement in fandom. It does NOT mean problematic shipper) I personally don't ship anything deemed problematic but my friends might and thats OKAY. | I also will not shut up about my interests, ESPECIALLY WWE OR JEM.
 
-We are a system - only close people get system info, you may ask whos fronting (mostly our host). Alter(s): who also play ponytown: @AngelicArcee + @CarlytheClown
+We are a system - only close people get system info, you may ask whos fronting (mostly our host). Alter(s): who also play ponytown: @AngelicArcee + @CarlytheClown + @AllAboutVelvet
 
 ![](https://64.media.tumblr.com/9cc184e0997e8a4e23952f883fa27eca/23530734176aa383-1e/s250x400/3cb9f46a6c128c4a7b14fc7bcab9896a7399d127.pnj) 
 
