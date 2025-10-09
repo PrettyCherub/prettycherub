@@ -1,25 +1,14 @@
-<h1 strong align="center"> 
- ${\textsf{\color{#601f9e}Ｍａｍｉ ｉｓ ＡＬＷＡＹＳ ｏｎ ｔｏｐ}}$ 
-</h1> 
-
+ 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=PrettyCherub&color=000000&style=plasic&label=Angels">
-
-  <p align="center">
-  <img src="https://64.media.tumblr.com/1eb82c5af73dd48cafdb6e9b6ac3a534/690d50e81101c8c1-73/s250x400/1619b0c03e7e4cce6e4ed534cbf0413c32c6a3c0.gifv">
- <p align="center">
-  <img src="https://64.media.tumblr.com/5c5edfa89a3400c9fd1b9396945fc936/c63e1dc9eaba14b0-c8/s250x400/50f0582a2418400278d2cd2e83ed00c9d5bb5022.gifv">
-
- <p align="center">
- <img width="650" src="https://64.media.tumblr.com/724880e683099141d33f0f5d35c018ec/c32f8bf6cc6cb890-54/s1280x1920/90da6197462d6f3eb60b77ce6718bedafc3b7ff4.pnj"
+   <img width="700" src="https://file.garden/aLcUmNZBvTGYyXJl/graphicjem%20(2).gif"
  </p>
-
+ 
 <p align="center">
-︵ֺ︵     ㅤ𝜚        ۪    ⠀ ⪩⪨
+︶ ✧ Jem 𓂃 Cherub  ᘞ ˚ ۪
 <p align="center">
-၄⋆၃  ៸៸៸ cherub / 18 ♡
+ ۪    𝅄   18   ໑᱖   They/She ໒꒱ྀ
 <p align="center">
-  ฅ ฅ    infp ⸝⸝ they / she  ౨ 
+  ♡  ͡ ݂ ࣭ ࣭⠀ INFP - Jem irl
 <p align="center">
           ♡ :D whis2int, c+h !! /ᐠ - ˕ -マ Ⳋ
 
