@@ -2,33 +2,61 @@
 <p align="center">
    <img width="700" src="https://file.garden/aLcUmNZBvTGYyXJl/graphicjem%20(2).gif"
  </p>
- 
-<p align="center">
+ <p align="center">
 ︶ ✧ Jem 𓂃 Cherub  ᘞ ˚ ۪
 <p align="center">
- ۪    𝅄   18   ໑᱖   They/She ໒꒱ྀ
+ ۪    𝅄   18   ໑ ᱖   They/She ໒꒱ྀ
 <p align="center">
-  ♡  ͡ ݂ ࣭ ࣭⠀ INFP - Jem irl
+  ♡  ͡ ݂ ࣭ ࣭ INFP - Jem irl
 <p align="center">
           ♡ :D whis2int, c+h !! /ᐠ - ˕ -マ Ⳋ
-
+ <p align="center">
+ <img width="800" src="https://64.media.tumblr.com/e8cf667b0431a1c937f7bcf3734cc0e7/d0252dd8f9e9edad-36/s1280x1920/f90b03a3c4e88bea23dcc03bb65b673a627b4a07.gifv"
+ </p>
 <h2 strong align="center"> 
  ${\textsf{•✦───✧ More Info ✧───✦•}}$ 
 </h2> 
  
-<a href="https://cherubponytown.straw.page/">**Strawpage**</a> **Important read, more about me**
+<a href="https://cherubponytown.straw.page/">**Strawpage**</a> **Needs updating, has fandoms and more..**
 
-<a href="https://linktr.ee/cherubcommentates">**WWE/Main Socials**</a>
+*Socials + Pronoun page in the link section*
 
-<a href="https://en.pronouns.page/@PrettyCherub">**Pronoun page**</a>
+**Kins** ➺ Jem  (Jem) + Shining Glitter Cookie (Cookie Run Kingdom) + Rhea Ripley (WWE) | I believe I am Jem, call me a fictkin or an irl idrc. 
 
-**Kins** ➺ Jem  (Jem) + Shining Glitter Cookie (Cookie Run Kingdom) + Rhea Ripley (WWE)
+**BYF** ➺ I think ship discourse is stupid, I don't care what people ship in their freetime so you can call me "Proship" (A pro-shipper or proshipper is a fan who opposes the anti-shipper movement in fandom. It does NOT mean problematic shipper) I personally don't ship anything deemed problematic but my friends might and thats OKAY. | I also will not shut up about my interests, ESPECIALLY WWE OR JEM. ![](https://64.media.tumblr.com/96bb1ce7c5a5cc608ae36d5f845c2f44/f566ea0461dc0b04-63/s250x400/2930da0f09b5a632573e453a9ed77c3955e13370.gifv) ![](https://64.media.tumblr.com/19c6db4a3c6898ea89e34c78a2de3d33/f566ea0461dc0b04-fc/s250x400/1efdeefe8bff620d82680676f5e98544f5849d66.gifv) 
 
-**BYF** ➺ I think ship discourse is stupid, I don't care what people ship in their freetime so you can call me "Proship" (A pro-shipper or proshipper is a fan who opposes the anti-shipper movement in fandom. It does NOT mean problematic shipper) I personally don't ship anything deemed problematic but my friends might and thats OKAY. | I also will not shut up about my interests, ESPECIALLY WWE OR JEM.
 
-We are a system - only close people get system info, you may ask whos fronting (mostly our host). Alter(s): who also play ponytown: @AngelicArcee + @CarlytheClown + @AllAboutVelvet
+We are a system - only close people get system info, you may ask whos fronting (mostly our host me!). Alter(s): who also play ponytown: @AngelicArcee + @CarlytheClown + @AllAboutVelvet
 
-![](https://64.media.tumblr.com/9cc184e0997e8a4e23952f883fa27eca/23530734176aa383-1e/s250x400/3cb9f46a6c128c4a7b14fc7bcab9896a7399d127.pnj) 
+Short about me: I'm a criminal justice major in college who's also minoring in psychology and political science! I'm kinda shy and awkward sometimes but I love making friends, everyone at the protree is my friend and if you harass them I will get you!/srs | I might be offtab so just whisper me and I'll get back to you, please INT with me in anyway.. you can cuddle, hide, boop, IDC! 
+
+<details> 
+  <summary>This user...</summary>  
+ 
+![](https://64.media.tumblr.com/176ae4c846275da0acb7e59f6e5f6ed2/7e7a17c822ba5eec-e2/s500x750/8db58574948e4c6db827dadd432b533699701058.jpg)
+![](https://64.media.tumblr.com/a76b02e2a9c857e0e880d394dcb23196/1920154fc9fd3612-b4/s500x750/3d57c5c33d58a6bda642cab11b3daeb2af8afb2e.pnj)
+![](https://64.media.tumblr.com/16e147ccf785849162b0781146ca2914/46d604dd162ee4c3-f9/s250x400/6f476de3a6d63c878e645d4d9d3dcd046982b27b.pnj)
+![](https://64.media.tumblr.com/730f3e291ee1935f8734a92945ffd197/d8efbe3ae7e0695e-16/s1280x1920/16715b4bd023dc865c0738857eb42f59bc94e5a7.jpg)
+![](https://64.media.tumblr.com/fd0c7659753ebe59ffa3b1ae8c39fef3/9ece98a9b1a4aea5-e1/s1280x1920/fc174413f17686c0e4a007e2c8f37fbc1d2ec65e.pnj)
+![](https://64.media.tumblr.com/7d15a1e047fc32c5c93f5a723f900c59/198fc4d399634551-3f/s500x750/2f77a0de67c75a3fcef61eb468ee49771af32df7.gifv)
+![](https://64.media.tumblr.com/974c548e80c8e4b2358c00f5fa41a482/c20a46e1a86f08ec-17/s1280x1920/fa7e64c1b3522b05652f20ad586a81b30ff2a6b9.pnj)
+![](https://64.media.tumblr.com/99161abce24f36dda65d237eebd8dfa3/26a36d203b6ad05d-43/s500x750/0ec9e380076167d508ea852583ae591c42844b53.pnj)
+![](https://64.media.tumblr.com/aeafdccc524d5732f62533b43bec2f10/c0267c93b160a0db-66/s250x400/41f7597ea18bebed6f9bbd8eb11149f9308ec6d1.jpg)
+![](https://64.media.tumblr.com/807bbfbc457d1c5b2d70d787103450c9/1c12787f782b8591-6e/s500x750/b73cf263cccb89ea4160f6ca4f82305f4b147520.pnj)
+![](https://64.media.tumblr.com/7ddf1d918419da724cb59dc3af8a1eda/970d2a75a2adfdd7-5f/s500x750/7dfb30602ff12b28267b39cdb66e4e59b8429882.pnj)
+![](https://64.media.tumblr.com/0f0b6e9f018f5e3edda4d98c04cbd9ee/e00fb671dc1925c4-58/s250x400/042520bcc5c28febd848442dd355e424777aa9b8.pnj)
+![](https://64.media.tumblr.com/bae0225808419581842f11d5bd1a96d3/6ea3ba2131cbc386-21/s400x600/7be9bad66e1e241d7f6aa19660e0eca0e1fa28e0.pnj)
+![](https://64.media.tumblr.com/9ccaa6f878f4f9d2175c61f8f06d7ce2/8a049d34c75d295e-f0/s500x750/eeb749cc907307cd30d7331605cd9ce783d90490.pnj)
+![]()
+![]()
+
+
+
+
+
+
+ 
+</details>
 
 <details> 
   <summary>Disorders</summary>  
@@ -59,7 +87,7 @@ We are a system - only close people get system info, you may ask whos fronting (
 
 
  <p align="center">
- <img width="650" src="https://64.media.tumblr.com/51c903540f2128bac96f3a1a1aaf2d01/ceb409fe516d3f86-23/s500x750/1c7466e0e764f6f16c44617084a688c814641723.pnj"
+ <img width="800" src="https://64.media.tumblr.com/e8cf667b0431a1c937f7bcf3734cc0e7/d0252dd8f9e9edad-36/s1280x1920/f90b03a3c4e88bea23dcc03bb65b673a627b4a07.gifv"
  </p>
 
 
@@ -180,6 +208,24 @@ We are a system - only close people get system info, you may ask whos fronting (
 ![](https://64.media.tumblr.com/da9ad15f166f7ba2e9067521a63e1f12/640a8073b6387d68-e1/s250x400/53c9c47e0a752dfb581b48f12db11cb9d49ad9ac.gifv)
 ![](https://64.media.tumblr.com/03a0f9fc3f9e45a50b8976540fa3895c/640a8073b6387d68-28/s250x400/c07c5b9c961513376abcf5b87917968d5f13216c.gifv)
 ![](https://64.media.tumblr.com/bdfe019d3f7f6c1066cb1437d1e07e78/83eebdb7a9c96ac8-2d/s250x400/a0ed833269f4802ad664d5ea6abe0629b60cd838.gifv)
+![](https://file.garden/aLcUmNZBvTGYyXJl/playstationgirl.gifv)
+![](https://file.garden/aLcUmNZBvTGYyXJl/gottaglock.gifv)
+![](https://file.garden/aLcUmNZBvTGYyXJl/freakygotfab.gifv)
+![](https://file.garden/aLcUmNZBvTGYyXJl/pinkaddict.gifv)
+![](https://file.garden/aLcUmNZBvTGYyXJl/sarcasmservice.gifv)
+![](https://file.garden/aLcUmNZBvTGYyXJl/housewifefromhell.gifv)
+![](https://file.garden/aLcUmNZBvTGYyXJl/hatsuneblinkie.gifv)
+![](https://file.garden/aLcUmNZBvTGYyXJl/waterparksblinkie.webp)
+![](https://file.garden/aLcUmNZBvTGYyXJl/supportemoticons.gifv)
+![](https://file.garden/aLcUmNZBvTGYyXJl/dontmakemeblinkie.gifv)
+![](https://file.garden/aLcUmNZBvTGYyXJl/ikyouareblinkie.gifv)
+![](https://file.garden/aLcUmNZBvTGYyXJl/deaddoveblinkie.gifv)
+![]()
+![]()
+![]()
+![]()
+![]()
+![]()
 ![]()
 ![]()
 ![]()
@@ -214,13 +260,13 @@ We are a system - only close people get system info, you may ask whos fronting (
 ![](https://64.media.tumblr.com/1ff282372fae92ee8c9205bf32b85693/d6ec1a73cb60a443-42/s100x200/c33d6a791dafd3d86cc0d6db53842b5903f0e3ee.gifv)
 ![](https://64.media.tumblr.com/42ac65074eecb6ad1996db59bc6d38db/d6ec1a73cb60a443-e5/s100x200/9cc4f6626c22501a9bac7512794d8ea227fc61cf.gifv)
 ![](https://64.media.tumblr.com/44a0b2ce378490f5320b458c92194917/d6ec1a73cb60a443-ab/s100x200/7eb229c15327e06c2de91c48de854174785eab27.pnj)
-![]()
-![]()
-![]()
-![]()
-![]()
-![]()
-![]()
+![](https://file.garden/aLcUmNZBvTGYyXJl/kinkybutton.gifv)
+![](https://file.garden/aLcUmNZBvTGYyXJl/obsessedbutton.gifv)
+![](https://file.garden/aLcUmNZBvTGYyXJl/fangirlbuttton.gifv)
+![](https://file.garden/aLcUmNZBvTGYyXJl/gotfangsbutton.gifv)
+![](https://file.garden/aLcUmNZBvTGYyXJl/cocksuckinbutton.gifv)
+![](https://file.garden/aLcUmNZBvTGYyXJl/succubusbutton.gifv)
+![](https://file.garden/aLcUmNZBvTGYyXJl/vampirebutton.gifv)
 ![]()
 ![]()
 ![]()
@@ -295,6 +341,23 @@ We are a system - only close people get system info, you may ask whos fronting (
 ![](https://64.media.tumblr.com/5f0ac39bc76733a55e928bf0a4f9cfbb/222b979b794304b0-49/s100x200/7d08521e70b08a0ca6b4f61a4d808a4852755bf2.pnj)
 ![](https://64.media.tumblr.com/8f550242cc7295ad76cea296dcc8f67e/222b979b794304b0-0b/s100x200/a9f6f5d92c9303489ae753810ca1767aefbfb4cf.gifv)
 ![](https://64.media.tumblr.com/27e23fbd59dc0a28b4dcba8538651ccb/4d437c297503682b-31/s100x200/9dc1fd64a0b401d1756a69c222c8bd0f71577a88.pnj)
+![](https://file.garden/aLcUmNZBvTGYyXJl/imabitchnotursstamp.pnj)
+![](https://file.garden/aLcUmNZBvTGYyXJl/supportprophanitystamp.gifv)
+![](https://file.garden/aLcUmNZBvTGYyXJl/killfacistsstamp.jpg)
+![](https://file.garden/aLcUmNZBvTGYyXJl/catlovergif.gifv)
+![](https://file.garden/aLcUmNZBvTGYyXJl/iseeyousinningstamp.pnj)
+![](https://file.garden/aLcUmNZBvTGYyXJl/nintendowiistamp.pnj)
+![](https://file.garden/aLcUmNZBvTGYyXJl/iheartfreaksstamp.jpg)
+![](https://file.garden/aLcUmNZBvTGYyXJl/seabassstamp.gifv)
+![](https://file.garden/aLcUmNZBvTGYyXJl/triggerwarningstamp.gifv)
+![](https://file.garden/aLcUmNZBvTGYyXJl/liveleakstamp.jpg)
+![](https://file.garden/aLcUmNZBvTGYyXJl/wiiownerstamp.jpg)
+![](https://file.garden/aLcUmNZBvTGYyXJl/cocainestamp.pnj)
+![](https://file.garden/aLcUmNZBvTGYyXJl/antisfuckingsuckstamp.gifv)
+![]()
+![]()
+![]()
+![]()
 ![]()
 ![]()
 ![]()
@@ -302,11 +365,3 @@ We are a system - only close people get system info, you may ask whos fronting (
 
 
 </details>
-
-
-    
- <h2 strong div align="center"> 
- ${\textsf{•✦───✧ CREDITS ✧───✦•}}$ 
-</h2 div> 
-
-**• [DeadlyClowning](https://github.com/deadlyclowning): Symbols and inspo! :D
