@@ -1,6 +1,6 @@
  
 <p align="center">
-   <img width="700" src="https://file.garden/aLcUmNZBvTGYyXJl/graphicjem%20(2).gif"
+   <img width="550" src="https://file.garden/aLcUmNZBvTGYyXJl/graphicjem%20(2).gif"
  </p>
  <p align="center">
 ︶ ✧ Jem 𓂃 Cherub  ᘞ ˚ ۪
@@ -11,7 +11,7 @@
 <p align="center">
           ♡ :D whis2int, c+h !! /ᐠ - ˕ -マ Ⳋ
  <p align="center">
- <img width="800" src="https://64.media.tumblr.com/e8cf667b0431a1c937f7bcf3734cc0e7/d0252dd8f9e9edad-36/s1280x1920/f90b03a3c4e88bea23dcc03bb65b673a627b4a07.gifv"
+ <img width="800" src="https://64.media.tumblr.com/b1932ee06bc4b13e56fd72e9653edcb1/70ed8579ab0de378-3e/s500x750/3d75688770ba3c99f13775477f3ee68ca0ab4e60.gifv"
  </p>
 <h2 strong align="center"> 
  ${\textsf{•✦───✧ More Info ✧───✦•}}$ 
@@ -28,7 +28,11 @@
 
 We are a system - only close people get system info, you may ask whos fronting (mostly our host me!). Alter(s): who also play ponytown: @AngelicArcee + @CarlytheClown + @AllAboutVelvet
 
-Short about me: I'm a criminal justice major in college who's also minoring in psychology and political science! I'm kinda shy and awkward sometimes but I love making friends, everyone at the protree is my friend and if you harass them I will get you!/srs | I might be offtab so just whisper me and I'll get back to you, please INT with me in anyway.. you can cuddle, hide, boop, IDC! 
+Short about me: I'm a psychology major who is also minoring in forensics! I'm kinda shy and awkward sometimes but I love making friends, everyone at the protree is my friend and if you harass them I will get you!/srs | I might be offtab so just whisper me and I'll get back to you, please INT with me in anyway.. you can cuddle, hide, boop, IDC! I won't bite talk with me! If I don't answer please whisper me, I might be offtab or afk.
+
+ <p align="center">
+ <img width="800" src="https://64.media.tumblr.com/b1932ee06bc4b13e56fd72e9653edcb1/70ed8579ab0de378-3e/s500x750/3d75688770ba3c99f13775477f3ee68ca0ab4e60.gifv"
+ </p>
 
 <details> 
   <summary>This user...</summary>  
@@ -84,11 +88,6 @@ Short about me: I'm a criminal justice major in college who's also minoring in p
 </details>
 
 </p>
-
-
- <p align="center">
- <img width="800" src="https://64.media.tumblr.com/e8cf667b0431a1c937f7bcf3734cc0e7/d0252dd8f9e9edad-36/s1280x1920/f90b03a3c4e88bea23dcc03bb65b673a627b4a07.gifv"
- </p>
 
 
 <details> 
