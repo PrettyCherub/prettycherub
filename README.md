@@ -17,18 +17,18 @@
  ${\textsf{•✦───✧ More Info ✧───✦•}}$ 
 </h2> 
  
-<a href="https://cherubponytown.straw.page/">**Strawpage**</a> **Needs updating, has fandoms and more..**
+<a href="https://cherubponytown.straw.page/">**Strawpage**</a> **Needs updating,work in progress.**
 
 *Socials + Pronoun page in the link section*
 
-**Kins** ➺ Jem  (Jem) + Shining Glitter Cookie (Cookie Run Kingdom) + Rhea Ripley (WWE) | I believe I am Jem, call me a fictkin or an irl idrc. 
+**Kins** ➺ Jem  (Jem) + Shining Glitter Cookie (Cookie Run Kingdom) + Rhea Ripley (WWE) | I am Jem, call me a fictkin or an irl idrc. 
 
-**BYF** ➺ **I think ship discourse is stupid, I don't care what people ship in their freetime so you can call me "Proship" (A pro-shipper or proshipper is a fan who opposes the anti-shipper movement in fandom. It does NOT mean problematic shipper) I personally don't ship anything deemed problematic** but my friends might and thats OKAY. | I also will not shut up about my interests, ESPECIALLY WWE OR JEM. ![](https://64.media.tumblr.com/96bb1ce7c5a5cc608ae36d5f845c2f44/f566ea0461dc0b04-63/s250x400/2930da0f09b5a632573e453a9ed77c3955e13370.gifv) ![](https://64.media.tumblr.com/19c6db4a3c6898ea89e34c78a2de3d33/f566ea0461dc0b04-fc/s250x400/1efdeefe8bff620d82680676f5e98544f5849d66.gifv) 
+**BYF** ➺ **I think ship discourse is stupid, I don't care what people ship in their freetime THIS MEANS IM ANTI-HARASSMENT. So you can call me "Proship" (A pro-shipper or proshipper is a fan who opposes the anti-shipper movement in fandom. It does NOT mean problematic shipper) I personally don't ship anything deemed problematic**  | I also will not shut up about my interests, ESPECIALLY WWE OR JEM. ![](https://64.media.tumblr.com/96bb1ce7c5a5cc608ae36d5f845c2f44/f566ea0461dc0b04-63/s250x400/2930da0f09b5a632573e453a9ed77c3955e13370.gifv) ![](https://64.media.tumblr.com/19c6db4a3c6898ea89e34c78a2de3d33/f566ea0461dc0b04-fc/s250x400/1efdeefe8bff620d82680676f5e98544f5849d66.gifv) 
 
 
 We are a system - only close people get system info, you may ask whos fronting (mostly our host me!). Alter(s): who also play ponytown: @AngelicArcee + @CarlytheClown + @AllAboutVelvet
 
-Short about me: I'm a criminal justice major whos also minoring in political science and psychology! I'm kinda shy and awkward sometimes but I love making friends, everyone at the protree is my friend and if you harass them I will get you!/srs | I might be offtab so just whisper me and I'll get back to you, please INT with me in anyway.. you can cuddle, hide, boop, IDC! I won't bite talk with me! If I don't answer please whisper me, I might be offtab or afk.
+Short about me: I'm a criminal justice major whos also minoring in political science and psychology! I'm kinda shy and awkward sometimes but I love making friends, everyone at the protree is my friend and if you harass them I will get you!/srs | I might be offtab so just whisper me and I'll get back to you, please INT with me in anyway.. you can cuddle, hide, boop, IDC! I won't bite talk with me! If I don't answer please whisper me. 
 
  <p align="center">
  <img width="800" src="https://64.media.tumblr.com/b1932ee06bc4b13e56fd72e9653edcb1/70ed8579ab0de378-3e/s500x750/3d75688770ba3c99f13775477f3ee68ca0ab4e60.gifv"
