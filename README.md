@@ -69,7 +69,7 @@ And I'm pretty much friends with everyone at the protree! **Y'all can always INT
  <img width="800" src="https://64.media.tumblr.com/b1932ee06bc4b13e56fd72e9653edcb1/70ed8579ab0de378-3e/s500x750/3d75688770ba3c99f13775477f3ee68ca0ab4e60.gifv"
  </p>
 
-*I'm also on this silly ahh list made by [Sluggot](github.com/sluggot) that spreads misinformation now giggle at it with me: [Click for list](https://rentry.co/ALWAYSBACKBABY)*
+*I'm also on this silly ahh list made by [Sluggot](https://github.com/sluggot) that spreads misinformation now giggle at it with me: [Click for list](https://rentry.co/ALWAYSBACKBABY)*
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zms6yv2ax4eqh3r96w3hlnvh5&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=ffb6c1&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=zms6yv2ax4eqh3r96w3hlnvh5&redirect=true)
 
