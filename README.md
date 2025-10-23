@@ -61,6 +61,8 @@ Short about me: I'm a criminal justice major whos also minoring in political sci
 
 [Anom](https://github.com/ask4socials)
 
+[darlingspider](https://github.com/darlingspider)
+
 And I'm pretty much friends with everyone at the protree! **Y'all can always INT with me even if I have DNI in my name!**
  
 </details>
