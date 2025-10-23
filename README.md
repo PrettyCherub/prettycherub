@@ -30,14 +30,50 @@ We are a system - only close people get system info, you may ask whos fronting (
 
 Short about me: I'm a criminal justice major whos also minoring in political science and psychology! I'm kinda shy and awkward sometimes but I love making friends, everyone at the protree is my friend and if you harass them I will get you!/srs | I might be offtab so just whisper me and I'll get back to you, please INT with me in anyway.. you can cuddle, hide, boop, IDC! I won't bite talk with me! If I don't answer please whisper me.| 
 
+</details>
+
+<details> 
+  <summary>Friends + Safe people</summary>  
+ 
+[greenbeanx3](https://github.com/greenbeanx3)
+
+[saturniid-sys](https://github.com/saturniid-sys)
+
+[kkaleidoskull](https://github.com/kkaleidoskull) *miss you pookie ily/p*
+
+[datariker](https://github.com/datariker)
+
+[Michael-Afton1983](https://github.com/Michael-Afton1983)
+
+[WalkingTW](https://github.com/WalkingTW)
+
+[Rainy-chaos-sys](https://github.com/Rainy-chaos-sys)
+
+[GothicCowboy](https://github.com/GothicCowboy)
+
+[ThePluralEcosystem](https://github.com/ThePluralEcosystem)
+
+[p0staldud3](https://github.com/p0staldud3) *also miss you too pookie ily/p*
+
+[Cannibalistic-Ways-Of-Life](https://github.com/Cannibalistic-Ways-Of-Life)
+
+[Dazaku](https://github.com/dazaku)
+
+And I'm pretty much friends with everyone at the protree! **Y'all can always INT with me even if I have DNI in my name!**
+ 
+</details>
+
+</p>
+
+<p align="center">
+ <img width="800" src="https://64.media.tumblr.com/b1932ee06bc4b13e56fd72e9653edcb1/70ed8579ab0de378-3e/s500x750/3d75688770ba3c99f13775477f3ee68ca0ab4e60.gifv"
+ </p>
+
 *I'm also on this silly ahh list made by [Sluggot](github.com/sluggot) that spreads misinformation now giggle at it with me: [Click for list](https://rentry.co/ALWAYSBACKBABY)*
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zms6yv2ax4eqh3r96w3hlnvh5&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=ffb6c1&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=zms6yv2ax4eqh3r96w3hlnvh5&redirect=true)
 
 
- <p align="center">
- <img width="800" src="https://64.media.tumblr.com/b1932ee06bc4b13e56fd72e9653edcb1/70ed8579ab0de378-3e/s500x750/3d75688770ba3c99f13775477f3ee68ca0ab4e60.gifv"
- </p>
 
 <details> 
   <summary>This user...</summary>  
