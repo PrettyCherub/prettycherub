@@ -7,7 +7,7 @@
 <p align="center">
  ۪    𝅄   18   ໑ ᱖   They/She ໒꒱ྀ
 <p align="center">
-  ♡  ͡ ݂ ࣭ ࣭ INFP - Jem irl
+  ♡  ͡ ݂ ࣭ ࣭ INFP - Jem fictkin
 <p align="center">
           ♡ :D whis2int, c+h !! /ᐠ - ˕ -マ Ⳋ
  <p align="center">
@@ -17,18 +17,23 @@
  ${\textsf{•✦───✧ More Info ✧───✦•}}$ 
 </h2> 
  
-<a href="https://cherubponytown.straw.page/">**Strawpage**</a> **Needs updating,work in progress.**
+<a href="https://cherubponytown.straw.page/">**Strawpage**</a> **Heavy WIP #College**
 
-*Socials + Pronoun page in the link section*
+[Socials and more here](https://prettycherub.my.canva.site/)
 
 **Kins** ➺ Jem  (Jem) + Shining Glitter Cookie (Cookie Run Kingdom) + Rhea Ripley (WWE) | I am Jem, call me a fictkin or an irl idrc. 
 
-**BYF** ➺ **I think ship discourse is stupid, I don't care what people ship in their freetime THIS MEANS IM ANTI-HARASSMENT. So you can call me "Proship" (A pro-shipper or proshipper is a fan who opposes the anti-shipper movement in fandom. It does NOT mean problematic shipper) I personally don't ship anything deemed problematic**  | I also will not shut up about my interests, ESPECIALLY WWE OR JEM. ![](https://64.media.tumblr.com/96bb1ce7c5a5cc608ae36d5f845c2f44/f566ea0461dc0b04-63/s250x400/2930da0f09b5a632573e453a9ed77c3955e13370.gifv) ![](https://64.media.tumblr.com/19c6db4a3c6898ea89e34c78a2de3d33/f566ea0461dc0b04-fc/s250x400/1efdeefe8bff620d82680676f5e98544f5849d66.gifv) 
+**BYF** ➺ **I think ship discourse is stupid, I don't care what people ship in their freetime THIS MEANS IM ANTI-HARASSMENT. So you can call me "Proship" (A pro-shipper or proshipper is a fan who opposes the anti-shipper movement in fandom. It does NOT mean problematic shipper) I personally don't ship anything deemed problematic**  | I also will not shut up about my interests, ESPECIALLY WWE OR JEM. 
 
 
-We are a system - only close people get system info, you may ask whos fronting (mostly our host me!). Alter(s): who also play ponytown: @AngelicArcee + @CarlytheClown + @AllAboutVelvet
+We are a system - only close people get system info, you may ask whos fronting (mostly our host me!). Alter(s): who also play ponytown: [@AngelicArcee](https://github.com/AngelicArcee) + [@CarlytheClown](https://github.com/CarlytheClown) + [@AllAboutVelvet](https://github.com/AllAboutVelvet)
 
-Short about me: I'm a criminal justice major whos also minoring in political science and psychology! I'm kinda shy and awkward sometimes but I love making friends, everyone at the protree is my friend and if you harass them I will get you!/srs | I might be offtab so just whisper me and I'll get back to you, please INT with me in anyway.. you can cuddle, hide, boop, IDC! I won't bite talk with me! If I don't answer please whisper me. 
+Short about me: I'm a criminal justice major whos also minoring in political science and psychology! I'm kinda shy and awkward sometimes but I love making friends, everyone at the protree is my friend and if you harass them I will get you!/srs | I might be offtab so just whisper me and I'll get back to you, please INT with me in anyway.. you can cuddle, hide, boop, IDC! I won't bite talk with me! If I don't answer please whisper me.| 
+
+*I'm also on this silly ahh list made by [Sluggot](github.com/sluggot) that spreads misinformation now giggle at it with me: [Click for list](https://rentry.co/ALWAYSBACKBABY)*
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zms6yv2ax4eqh3r96w3hlnvh5&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=ffb6c1&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=zms6yv2ax4eqh3r96w3hlnvh5&redirect=true)
+
 
  <p align="center">
  <img width="800" src="https://64.media.tumblr.com/b1932ee06bc4b13e56fd72e9653edcb1/70ed8579ab0de378-3e/s500x750/3d75688770ba3c99f13775477f3ee68ca0ab4e60.gifv"
@@ -51,6 +56,19 @@ Short about me: I'm a criminal justice major whos also minoring in political sci
 ![](https://64.media.tumblr.com/0f0b6e9f018f5e3edda4d98c04cbd9ee/e00fb671dc1925c4-58/s250x400/042520bcc5c28febd848442dd355e424777aa9b8.pnj)
 ![](https://64.media.tumblr.com/bae0225808419581842f11d5bd1a96d3/6ea3ba2131cbc386-21/s400x600/7be9bad66e1e241d7f6aa19660e0eca0e1fa28e0.pnj)
 ![](https://64.media.tumblr.com/9ccaa6f878f4f9d2175c61f8f06d7ce2/8a049d34c75d295e-f0/s500x750/eeb749cc907307cd30d7331605cd9ce783d90490.pnj)
+![](https://64.media.tumblr.com/3e9d51d30d4dfa58a0d879c1c21cf076/e1d00e5fb9f1f3ff-67/s1280x1920/0d1caaf09ec5813782bb25abbffd1e80c9f976a2.pnj)
+![](https://64.media.tumblr.com/a873050392024b377134079ead5b261e/7152da28e132261f-cf/s1280x1920/1b9783e93af0ad79edbbe96f88393883976fbdac.pnj)
+![](https://64.media.tumblr.com/05647b6f454ae46a9e3c9ccf3deb8fce/02f6c2b6b2845b0e-02/s1280x1920/d087a7d1256576e1d64e4e3ef730719b265fefb1.jpg)
+![](https://64.media.tumblr.com/8d577b56b0e399a92f3bcec0d54cdfd9/0dc8d1653d48861b-c8/s500x750/5dbd2fb6347a375016d87dfaf4cb0e8e4ed3e3ae.pnj)
+![](https://64.media.tumblr.com/1eb06db2257a8bc603d75634c66e4875/12b83be7f3afc336-b2/s400x600/949055a3e64739b8950dd189997e2d1d031a9fb4.pnj)
+![](https://64.media.tumblr.com/7e68f04f896567207a5cc6a3582b39f3/12b83be7f3afc336-f7/s400x600/481be073f725ed2ffefcace9d090cc9f94c1ced6.pnj)
+![](https://64.media.tumblr.com/7746f58d569ae77e1f260bfaa475cf7f/12b83be7f3afc336-6a/s400x600/1c5478ca34888bdc6bcab3fa3a5ff3c9d01bb973.pnj)
+![](https://64.media.tumblr.com/38ad4af751094eaa29a605bc67d4fd80/12b83be7f3afc336-6c/s400x600/399ad4b83bc544e023062fe91946efd02f754f87.pnj)
+![](https://64.media.tumblr.com/0c82b673d0bc54ab4396531378588551/12b83be7f3afc336-bd/s400x600/4ee596132fc3ee2bd45e1e72ec4afee432125dc9.pnj)
+![](https://64.media.tumblr.com/51119e90005cc33397df97903bf32a22/617a5c7071adee4e-67/s500x750/492dab5abbf0d4278ef5a762680f2f0330706104.pnj)
+![]()
+![]()
+![]()
 ![]()
 ![]()
 
@@ -219,6 +237,15 @@ Short about me: I'm a criminal justice major whos also minoring in political sci
 ![](https://file.garden/aLcUmNZBvTGYyXJl/dontmakemeblinkie.gifv)
 ![](https://file.garden/aLcUmNZBvTGYyXJl/ikyouareblinkie.gifv)
 ![](https://file.garden/aLcUmNZBvTGYyXJl/deaddoveblinkie.gifv)
+![](https://64.media.tumblr.com/fcdaca185e5f5f2db0c8714fd7adde11/1b925f9587d95c2b-7e/s500x750/c6f3089c6d559a8476bdd18f5c6e04e7badf9412.gifv)
+![](https://64.media.tumblr.com/00cd122883447c7ebd12e9996dc52492/e6e08e319bcefb0e-51/s250x400/4ab81991e45c8c8d1ff30b5883be81d51f276fa3.gifv)
+![](https://64.media.tumblr.com/965167efae7e62e8fa6f11db5ca9914a/7e84b72b5ba10300-18/s250x400/bd8257dc1e59652210ea3f722d1e3246f7275ea4.gifv)
+![](https://64.media.tumblr.com/9e3cf113bf7872eaf05e293f43bb4107/f566ea0461dc0b04-54/s250x400/e0613ef26230df485d9c9cc1953ac5a0bafa961b.gifv)
+![](https://64.media.tumblr.com/b8b5a1a789e6b41c7d34b6d7f6523bbc/0d6f024152bca902-08/s250x400/890e1b2313c45f6927ae1307fdb75149a82ac7fa.gifv)
+![](https://64.media.tumblr.com/db6b352251560d2d52fd9137fde6f033/8dc063230d650b6b-04/s250x400/8ee5301fe175053eeed3235e5262cc197d939822.gifv)
+![](https://64.media.tumblr.com/02bff094bba05356d3b61dc8c51f9d07/8dc063230d650b6b-dd/s250x400/ea6051eb2fc152b3642d66c7d00fd86f8c0b4b34.gifv)
+![](https://64.media.tumblr.com/bc317a999860eb3d22aac2bd172b7658/8dc063230d650b6b-21/s250x400/b5d2b9dc51144d3721a5ccb8380978b46c648ed1.gifv)
+![](https://64.media.tumblr.com/15eea7f9925aae8a1ae2a888933eaa5b/8dc063230d650b6b-b5/s250x400/47a6265a88cd41f6b130e78042156a909aa95018.gifv)
 ![]()
 ![]()
 ![]()
@@ -266,7 +293,7 @@ Short about me: I'm a criminal justice major whos also minoring in political sci
 ![](https://file.garden/aLcUmNZBvTGYyXJl/cocksuckinbutton.gifv)
 ![](https://file.garden/aLcUmNZBvTGYyXJl/succubusbutton.gifv)
 ![](https://file.garden/aLcUmNZBvTGYyXJl/vampirebutton.gifv)
-![]()
+![](https://64.media.tumblr.com/a0f60b5ab41cd7c22a539bbdecd9f9ac/18d07884c6f6a27a-6a/s100x200/d2c37ee333e6d340c982012c7aa796a39257dc79.gifv)
 ![]()
 ![]()
 ![]()
@@ -353,8 +380,8 @@ Short about me: I'm a criminal justice major whos also minoring in political sci
 ![](https://file.garden/aLcUmNZBvTGYyXJl/wiiownerstamp.jpg)
 ![](https://file.garden/aLcUmNZBvTGYyXJl/cocainestamp.pnj)
 ![](https://file.garden/aLcUmNZBvTGYyXJl/antisfuckingsuckstamp.gifv)
-![]()
-![]()
+![](https://64.media.tumblr.com/09c07035247b421ab38349f7064580e8/b9cad5a3b0a11ffa-97/s100x200/b6a57ee9c0967009d71be020864215dd8e417953.pnj)
+![](https://64.media.tumblr.com/d02cae2f6908a79c7160d75773575b39/e769e4fbde413e9b-ca/s100x200/63d632272555d4dce8c993ac2735a3c81fe4a50f.pnj)
 ![]()
 ![]()
 ![]()
