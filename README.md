@@ -23,7 +23,7 @@
 
 **Kins** ➺ Jem  (Jem) + Shining Glitter Cookie (Cookie Run Kingdom) + Rhea Ripley (WWE) | I am Jem, call me a fictkin or an irl idrc. 
 
-**BYF** ➺ **I think ship discourse is stupid, I don't care what people ship in their freetime THIS MEANS IM ANTI-HARASSMENT. So you can call me "Proship" (A pro-shipper or proshipper is a fan who opposes the anti-shipper movement in fandom. It does NOT mean problematic shipper) I personally don't ship anything deemed problematic**  | I also will not shut up about my interests, ESPECIALLY WWE OR JEM. 
+**BYF** ➺ **I think ship discourse is stupid, I don't care what people ship in their freetime THIS MEANS IM ANTI-HARASSMENT. So you can call me "Proship" (A pro-shipper or proshipper is a fan who opposes the anti-shipper movement in fandom. It does NOT mean problematic shipper) I personally don't ship anything deemed problematic. So no I'm not the pro you might think of.**  | I also will not shut up about my interests, ESPECIALLY WWE OR JEM. 
 
 
 We are a system - only close people get system info, you may ask whos fronting (mostly our host me!). Alter(s): who also play ponytown: [@AngelicArcee](https://github.com/AngelicArcee) + [@CarlytheClown](https://github.com/CarlytheClown) + [@AllAboutVelvet](https://github.com/AllAboutVelvet)
@@ -65,7 +65,7 @@ Short about me: I'm a criminal justice major whos also minoring in political sci
 
 [CCaftoncest](https://github.com/CCaftoncest) 
 
-And I'm pretty much friends with everyone at the protree! **Y'all can always INT with me even if I have DNI in my name!**
+And I'm pretty much friends with everyone at the protree (safe server) **Y'all can always INT with me even if I have DNI in my name!**
  
 </details>
 
@@ -77,7 +77,6 @@ And I'm pretty much friends with everyone at the protree! **Y'all can always INT
 
 *I'm also on this silly ahh list made by [Sluggot](https://github.com/sluggot) that spreads misinformation now giggle at it with me: [Click for list](https://rentry.co/ALWAYSBACKBABY)*
 
-*Look at what I be listening too:*
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zms6yv2ax4eqh3r96w3hlnvh5&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=ffb6c1&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=zms6yv2ax4eqh3r96w3hlnvh5&redirect=true)
 
 
