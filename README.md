@@ -21,9 +21,9 @@
 
 [Socials and more here](https://prettycherub.my.canva.site/)
 
-**Kins** ➺ Jem  (Jem) + Shining Glitter Cookie (Cookie Run Kingdom) + Rhea Ripley (WWE) | I am Jem, call me a fictkin or an irl idrc. 
+**Kins** ➺ Jem  (Jem) + Shining Glitter Cookie (Cookie Run Kingdom) + Rhea Ripley (WWE) | I am Jem fictkin so feel free to refer to me as Jem or Cherub :) 
 
-**BYF** ➺ **I think ship discourse is stupid, I don't care what people ship in their freetime THIS MEANS IM ANTI-HARASSMENT. So you can call me "Proship" (A pro-shipper or proshipper is a fan who opposes the anti-shipper movement in fandom. It does NOT mean problematic shipper) I personally don't ship anything deemed problematic. So no I'm not the pro you might think of.**  | I also will not shut up about my interests, ESPECIALLY WWE OR JEM. 
+**BYF** ➺ I think ship discourse is stupid, I don't care what people ship in their freetime _**THIS MEANS IM ANTI-HARASSMENT.**_ So you can call me ["Proship"](https://define-proship.carrd.co/) (**Click the word proship for the definition before you attack me) I personally don't ship anything deemed problematic. So no I'm not the pro you might think of.**  | I also will not shut up about my interests, _ESPECIALLY WWE OR JEM._
 
 
 We are a system - only close people get system info, you may ask whos fronting (mostly our host me!). Alter(s): who also play ponytown: [@AngelicArcee](https://github.com/AngelicArcee) + [@CarlytheClown](https://github.com/CarlytheClown) + [@AllAboutVelvet](https://github.com/AllAboutVelvet)
