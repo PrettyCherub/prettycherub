@@ -16,7 +16,8 @@
 <h2 strong align="center"> 
  ${\textsf{•✦───✧ More Info ✧───✦•}}$ 
 </h2> 
- 
+
+<a href="https://prettycherub.carrd.co/">**Carrd**</a> **PLS READDDD** *i worked so hard on this*
 <a href="https://cherubponytown.straw.page/">**Strawpage**</a> **Heavy WIP #College**
 
 [Socials and more here](https://prettycherub.my.canva.site/)
