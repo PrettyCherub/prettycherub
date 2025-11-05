@@ -18,6 +18,7 @@
 </h2> 
 
 <a href="https://prettycherub.carrd.co/">**Carrd**</a> **PLS READDDD** *i worked so hard on this*
+
 <a href="https://cherubponytown.straw.page/">**Strawpage**</a> **Heavy WIP #College**
 
 [Socials and more here](https://prettycherub.my.canva.site/)
@@ -76,8 +77,6 @@ And I'm pretty much friends with everyone at the protree (safe server) **Y'all c
  <img width="800" src="https://64.media.tumblr.com/b1932ee06bc4b13e56fd72e9653edcb1/70ed8579ab0de378-3e/s500x750/3d75688770ba3c99f13775477f3ee68ca0ab4e60.gifv"
  </p>
 
-*I'm also on this silly ahh list made by [Sluggot](https://github.com/sluggot) that spreads misinformation now giggle at it with me: [Click for list](https://rentry.co/ALWAYSBACKBABY)*
-
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zms6yv2ax4eqh3r96w3hlnvh5&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=ffb6c1&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=zms6yv2ax4eqh3r96w3hlnvh5&redirect=true)
 
 
@@ -109,7 +108,7 @@ And I'm pretty much friends with everyone at the protree (safe server) **Y'all c
 ![](https://64.media.tumblr.com/38ad4af751094eaa29a605bc67d4fd80/12b83be7f3afc336-6c/s400x600/399ad4b83bc544e023062fe91946efd02f754f87.pnj)
 ![](https://64.media.tumblr.com/0c82b673d0bc54ab4396531378588551/12b83be7f3afc336-bd/s400x600/4ee596132fc3ee2bd45e1e72ec4afee432125dc9.pnj)
 ![](https://64.media.tumblr.com/51119e90005cc33397df97903bf32a22/617a5c7071adee4e-67/s500x750/492dab5abbf0d4278ef5a762680f2f0330706104.pnj)
-![]()
+![](https://64.media.tumblr.com/53788813ae386c855015a684d34a5d2e/8e4c88fff99eef13-1b/s640x960/62952bcce80994246034cc95c40a4411971d2be0.pnj)
 ![]()
 ![]()
 ![]()
@@ -356,17 +355,17 @@ And I'm pretty much friends with everyone at the protree (safe server) **Y'all c
 ![](https://64.media.tumblr.com/0bc6aae6f744d46dbab8bb0f4461a49e/dff12cee82362a3a-ff/s250x400/3ae07011d0fe92dc1f157cd0d8983ed22316bb5b.webp)
 ![](https://64.media.tumblr.com/784fe0fc723cfc90e384e2946a6ca580/dff12cee82362a3a-23/s400x600/fe4c7edaae7617a30f231e7b1b428f99388371f4.gifv)
 ![](https://64.media.tumblr.com/3693e50024cde24ab3e61e7a250e581d/dff12cee82362a3a-ea/s250x400/14209074f19cd5e8c508a2ca36ed56996ac4fd9a.gifv)
-![]()
-![]()
-![]()
-![]()
-![]()
-![]()
-![]()
-![]()
-![]()
-![]()
-![]()
+![](https://64.media.tumblr.com/3352e40538a4f8e7b972fb0494aeadc1/6c4bd2fe705234b8-30/s250x400/168af44390f77de1794dd38eb003b744833700fd.gifv)
+![](https://64.media.tumblr.com/efd852927cb79d5c6c59e4805003e544/6c4bd2fe705234b8-26/s250x400/fa57cb0e820a8d44227a1f83d0b06f10158e45f0.webp)
+![](https://64.media.tumblr.com/49c79579cd46df0fe98a998c80acc445/6c4bd2fe705234b8-da/s250x400/ceae2c16561f577c427a408baa607d9bbea223a0.gifv)
+![](https://64.media.tumblr.com/dcde1a939853676c480d74f4ef813479/0d610d849dbc691b-8e/s250x400/e8c95086866daf253f280c7aeaf3061b6e602b72.gifv)
+![](https://64.media.tumblr.com/f7ce605e77ec50cd2f0209bb6b832ed3/3c04a6d0b4ada58b-a5/s250x400/9c1c3899d50104ee3dcdd2a3685d1af90252e31e.gifv)
+![](https://64.media.tumblr.com/14b9b2c7d3e51826fea47f39c01efa3e/5860553f32fcff86-2c/s400x600/181212e84e3926d29f6c05c378fc938dbe17f6d4.webp)
+![](https://64.media.tumblr.com/b173c544c146cf948ddf930fb3c8e67d/5860553f32fcff86-8c/s250x400/1c8030438e257ab6d92d1989c022f0775afffcb0.webp)
+![](https://64.media.tumblr.com/1d55344980d25067f43cfd62e2b9fb1c/ce30a219cc738e39-c5/s250x400/7ae9b9a2c6187229048bca359b83f82471b71a5a.pnj)
+![](https://64.media.tumblr.com/14df5fe5a6b3bdc345418efa4d879a16/5732e589548c1c67-e7/s250x400/709be45e747f9cc1e607aa611002ff27ce614378.gifv)
+![](https://64.media.tumblr.com/50091742ee8b93375870f6915887b80e/68ac1049942f2da4-fa/s250x400/4cdb896850d6486f4fae060018b79bfe746df6e3.gifv)
+![](https://64.media.tumblr.com/ad08d51344d5d4cb6fac9b433a523da8/68ac1049942f2da4-3e/s250x400/5380224908681137a0d4452559c411d571b5a406.gifv)
 ![]()
 ![]()
 ![]()
@@ -419,7 +418,7 @@ And I'm pretty much friends with everyone at the protree (safe server) **Y'all c
 ![](https://64.media.tumblr.com/9e20acb89de357306c3a3a6a43c40617/3e4d1846e4f07c0f-29/s75x75_c1/076e99fa4075a6913f11f8e58ab70e44706762e7.gifv)
 ![](https://64.media.tumblr.com/68586ec9fd36d3f338c3a9047e36a289/3e4d1846e4f07c0f-90/s75x75_c1/36a736199bc8ef77a6941f84dc02e6d9b615d856.gifv)
 ![](https://64.media.tumblr.com/56075cc6a54d60b8efb669a4f83014ba/3e4d1846e4f07c0f-d6/s75x75_c1/8284e420a3ca78081107ade6970a402ab5b07fc6.gifv)
-![]()
+![](https://64.media.tumblr.com/8b6bfacd57bba09aec9c5e81d731a23a/dff12cee82362a3a-6b/s100x200/d22a4fe7a5c5f7bad2b0f3a4740e76fb77894623.gifv)
 ![]()
 ![]()
 ![]()
@@ -562,11 +561,52 @@ And I'm pretty much friends with everyone at the protree (safe server) **Y'all c
 ![](https://64.media.tumblr.com/485e0c0de59a5e961d2b7bf81ec55124/fb8800c4a74dc885-00/s100x200/6355e158da522687ed7c6cfac6dc4716037084b6.pnj)
 ![](https://64.media.tumblr.com/2f4f7ac9f7d46a7dbb52d6cb51bab836/644e2e86af613ddd-69/s400x600/5ce8894dc43e9bba76e3423fb2b8ca5b34f40a18.pnj)
 ![](https://64.media.tumblr.com/c8a25fb1bc8ca5b181bfdca67a81faac/59971146a468ef00-86/s250x400/196c8049db1c319d64b0160570361efa4a69a9c4.pnj)
+![](https://64.media.tumblr.com/9e302e0c7d66c9f4881c1ba9f9d1c504/dd9dd9869ca670f0-f1/s250x400/51d34b028f6708cf5c6ea5b8d9b6d643b7ea258f.jpg)
+![](https://64.media.tumblr.com/a848dee815813264a4e205b1db045acf/dd9dd9869ca670f0-40/s250x400/a526a1f3cde15bb2f43943655d1bfeb4a313bef9.pnj)
+![](https://64.media.tumblr.com/2c700bb0a6f7f43e4156961c70226248/2eefe54d7a0658ab-80/s100x200/ed4961d5212269795210e894f2b5e049fcd14c8f.pnj)
+![](https://64.media.tumblr.com/72d4f634431e2171abc05f84bf35f624/551900b7b091d19d-ae/s100x200/3cca3a609ded6ee94ba1f3888466042341dc5399.pnj)
+![](https://64.media.tumblr.com/76aba1a1ecba9c0f89e6408cccc2972b/551900b7b091d19d-f4/s100x200/5e89503a5b0863ffbbf90a28978462740c66f26c.pnj)
+![](https://64.media.tumblr.com/9cd1e0885977672646384b75a4ccf3a4/5025fbe7c31a3533-3d/s100x200/50a4d519e14f8f84cf130a65778b935373850792.gifv)
+![](https://64.media.tumblr.com/1a8f22ebf03f590ee982b28f835c2120/5025fbe7c31a3533-84/s100x200/9bc1b53a50849a64df80b89112acec0f870fa872.pnj)
+![](https://64.media.tumblr.com/75ecf05b07cbcfdba097afa6ba7f5e36/5025fbe7c31a3533-83/s100x200/d5559b82c1b4abbc22af9c284dacb7468169da41.gifv)
+![](https://64.media.tumblr.com/427ab8a49103091229c7e2a7615e5c4a/14f43c9146c657d0-32/s75x75_c1/ef7eaa4d2d19626291ca75043d30a64fd12e7bde.gifv)
+![](https://64.media.tumblr.com/ede2390ff84f4d3bdb62aa64e8123221/e1a21309f8fa6d6d-5f/s100x200/88fb8a8789828193b9ed0e113360afe3d3849001.jpg)
+![](https://64.media.tumblr.com/daf7ccdf920cdcf53662f9b75ec83a91/e1a21309f8fa6d6d-54/s100x200/f164e4343d923398b3202fdb55945cebcbf282ff.pnj)
+![](https://64.media.tumblr.com/2203d7d6775bca53bf398626b30a5535/b66d6e492cc375ee-b1/s250x400/983d8731e89b7da8a68e207ca24582d5e344bff7.pnj)
+![](https://64.media.tumblr.com/8e198c6e1f709dfd533b5318a46f3336/6c4bd2fe705234b8-64/s100x200/75dbcf7a87669b3ba5c86bf6bb570239c3ba7c5a.pnj)
+![](https://64.media.tumblr.com/8add605ae319ff4c533ed0463571c3f6/0d610d849dbc691b-fe/s100x200/9dfaaf0afd03dd7250fb1c3674ebfd1b70ca2f42.gifv)
+![](https://64.media.tumblr.com/7f02cdf45f4e136029903a6877bb3f53/6edc4b595b3da673-74/s100x200/bf1db29fb2d2b3a26ea1995d0c30e224fd7336b2.pnj)
+![](https://64.media.tumblr.com/55b9a099b0c4e005076ce7d811843cd7/720e8d41bd2d8ed4-c8/s100x200/d563fd16070c2eb4d83d0bd4fa3314785a327332.gifv)
+![](https://64.media.tumblr.com/5c9b692ab0810dc3df89ec65896c2214/720e8d41bd2d8ed4-ab/s100x200/4b6aaa89fab9dda73b6117608a74c9853dbd6e97.pnj)
+![](https://64.media.tumblr.com/b0b2f9b4fb549acd31fb3390c9b8451a/2c79849150adb019-5a/s250x400/7d296a466263e1965ea02d68eb2c2d38c24a549c.pnj)
+![](https://64.media.tumblr.com/9f3192d0a23423a5b39c10c6e4dfa967/2c79849150adb019-7c/s250x400/be32e6dfda700348bb71fbc82146551e39126f63.pnj)
+![](https://64.media.tumblr.com/9a50fe963262c5fc36bf279f1a94b072/3c04a6d0b4ada58b-6e/s100x200/bbcb8519506edb1e78527567e4acc116a73587a0.pnj)
+![](https://64.media.tumblr.com/869ce0a1ea250c22c5ec2631a2e92c0a/3c04a6d0b4ada58b-94/s100x200/34484f803f476ac5d9d15c32b007457a32d288e6.pnj)
 ![]()
 ![]()
 ![]()
 ![]()
 ![]()
+![]()
+![]()
+![]()
+![]()
+![]()
+![]()
+![]()
+![]()
+![]()
+![]()
+![]()
+![]()
+![]()
+![]()
+![]()
+![]()
+![]()
+![]()
+
+
 
 
 
