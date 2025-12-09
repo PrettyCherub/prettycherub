@@ -611,4 +611,5 @@ And I'm pretty much friends with everyone at the protree (safe server) **Y'all c
 
 
 </details>
-Credits to [@deadlyclowning](https://github.com/deadlyclowning) for helping me code this!!
+
+Credit to: [@deadlyclowning](https://github.com/deadlyclowning) 
