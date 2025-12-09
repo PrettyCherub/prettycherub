@@ -1,47 +1,45 @@
- 
-<p align="center">
-   <img width="550" src="https://file.garden/aLcUmNZBvTGYyXJl/graphicjem%20(2).gif"
- </p>
- <p align="center">
-︶ ✧ Jem 𓂃 Cherub  ᘞ ˚ ۪
-<p align="center">
- ۪    𝅄   18   ໑ ᱖   They/She ໒꒱ྀ
-<p align="center">
-  ♡  ͡ ݂ ࣭ ࣭ INFP - Jem fictkin
-<p align="center">
-          ♡ :D whis2int, c+h !! /ᐠ - ˕ -マ Ⳋ
- <p align="center">
- <img width="800" src="https://64.media.tumblr.com/b1932ee06bc4b13e56fd72e9653edcb1/70ed8579ab0de378-3e/s500x750/3d75688770ba3c99f13775477f3ee68ca0ab4e60.gifv"
- </p>
-<h2 strong align="center"> 
- ${\textsf{•✦───✧ More Info ✧───✦•}}$ 
-</h2> 
+<img src="https://64.media.tumblr.com/75ae9038f4fdcf81251ba5522ce37c91/2d84a66578026c4e-b8/s1280x1920/3ad98811d8621338c58e07cfb5500720982d290b.pnj" align="left" width="40%"> <p align="center"> ${\textsf{\color{#fe3837}𝒟𝑜𝓃'𝓉 𝓎𝑜𝓊 𝒻𝑜𝓇𝑔𝑒𝓉..}}$ <br> <img src="https://64.media.tumblr.com/4ae6c5e1efa061797b4eb6ea1b98581e/b8cd044ac524d7bb-5d/s2048x3072/c01b808eacd7bd72f8c47f2c7570c873f3c51e7a.pnj" height="40" width="240"/><p align="center"> ${\textsf{\color{#fe3837}Cherub}}$ ㅤ/ㅤ<i> Jem </i> <br> They ♡ She⠀⸝⠀18 <br> OSDD ⎯⎯⎯ Host <br> ${\textsf{\color{#fe3837}Pro}}$⎯⎯ficㅤ &&.ㅤ ${\textsf{\color{#fe3837}Pro}}$⎯⎯ship. <br> <img src="https://64.media.tumblr.com/4ae6c5e1efa061797b4eb6ea1b98581e/b8cd044ac524d7bb-5d/s2048x3072/c01b808eacd7bd72f8c47f2c7570c873f3c51e7a.pnj" height="40" width="240"/> <p align="center"> ${\textsf{\color{#fe3837}.. 𝒴𝑜𝓊 𝒶𝓇𝑒 𝓂𝓎 𝓅𝑒𝓉!}}$
+<br>
+  
 
-<a href="https://prettycherub.carrd.co/">**Carrd**</a> **PLS READDDD** *i worked so hard on this*
+<br>
+<img src="https://64.media.tumblr.com/0884c019afb672f0e8d1c4fc3c92bcb0/406b28c7002c0f31-90/s400x600/a7643cd5e8b20107f347deb8ad32f3766ee094ae.pnj" align="right" width="40%"> <p align="center">   ${\textsf{\color{#fe3837}𝐼 𝓈𝒶𝓎 𝓌𝒽𝑒𝓃 𝓉𝑜 𝓈𝒾𝓉 𝒶𝓃𝒹 𝓈𝓉𝒶𝓎..}}$ <br> <img src="https://64.media.tumblr.com/4ae6c5e1efa061797b4eb6ea1b98581e/b8cd044ac524d7bb-5d/s2048x3072/c01b808eacd7bd72f8c47f2c7570c873f3c51e7a.pnj" height="40" width="240"/>
+<p align="center"> <details align="center">
+<summary> ⎯⎯ㅤ ${\textsf{\color{#fe3837}dni.}}$ ღ </summary> basic dni (pedos,racists,ect) <br> under 13ㅤ<br> antis, though im willing to have a cvil conversation. <br> ${\textsf{\color{#fe3837}i will ragebait you or hide you!}}$ <br> </details> <details align="center">
+<summary> ⎯⎯ㅤ ${\textsf{\color{#fe3837}interests.}}$ㅤღ </summary> ${\textsf{\color{#fe3837}WWE, JEM, HAZBIN HOTEL, DISPATCH}}$ <br> lego monkie kid,ㅤbaking,ㅤwarframe, <br> hazbin hotel,ㅤCRK/OB/TOA,ㅤhamilton,ㅤsouth park </details> <p align="center"> <img src="https://64.media.tumblr.com/4ae6c5e1efa061797b4eb6ea1b98581e/b8cd044ac524d7bb-5d/s2048x3072/c01b808eacd7bd72f8c47f2c7570c873f3c51e7a.pnj" height="40" width="240"/> <p align="center"> ${\textsf{\color{#fe3837}..𝑅𝑜𝓁𝓁 𝑜𝓋𝑒𝓇, 𝑜𝓇 𝑔𝑜 𝒻𝑒𝓉𝒸𝒽!}}$
 
-<a href="https://cherubponytown.straw.page/">**Strawpage**</a> **Heavy WIP #College**
+<div align="center">
+
+  ![](https://komarev.com/ghpvc/?username=PrettyCherub&color=fe3837)
+</div>
+
+ <img src="https://64.media.tumblr.com/772601a28648c04cf1c9690687bb8265/232d390e5f4723e7-b0/s1280x1920/abdbd9047623d7d7f357e276a06f5e78e31d2169.pnj" width="950">
+
+<a href="https://prettycherub.carrd.co/">**Carrd**</a> *My card, way more info on it*
+
+<a href="https://cherubponytown.straw.page/">**Strawpage**</a> **Heavy WIP #College** *still feel free to leave a gimmick!*
 
 [Socials and more here](https://prettycherub.my.canva.site/)
 
-**Kins** ➺ Jem  (Jem) + Shining Glitter Cookie (Cookie Run Kingdom) + Rhea Ripley (WWE) | I am Jem fictkin so feel free to refer to me as Jem or Cherub :) 
+${\textsf{\color{#fe3837}KINS ⊱✿⊰}}$ Jem (JEM) + Rosie (HAZBIN HOTEL) + Niffty (HAZBIN HOTEL)
 
-**BYF** ➺ I think ship discourse is stupid, I don't care what people ship in their freetime _**THIS MEANS IM ANTI-HARASSMENT.**_ So you can call me ["Proship"](https://define-proship.carrd.co/) (**Click the word proship for the definition before you attack me) I personally don't ship anything deemed problematic. So no I'm not the pro you might think of.**  | I also will not shut up about my interests, _ESPECIALLY WWE OR JEM._
-
+${\textsf{\color{#fe3837}BYI ⊱✿⊰}}$ I'm a proshipper, this is what I mean when I call myself that. --> ["Proship"](https://define-proship.carrd.co/) (**Click the word proship) I personally don't ship anything deemed problematic.**  | I also will not shut up about my interests, _ESPECIALLY WWE, JEM, HH and Dispatch_
 
 We are a system - only close people get system info, you may ask whos fronting (mostly our host me!). Alter(s): who also play ponytown: [@AngelicArcee](https://github.com/AngelicArcee) + [@CarlytheClown](https://github.com/CarlytheClown) + [@AllAboutVelvet](https://github.com/AllAboutVelvet)
 
-Short about me: I'm a criminal justice major whos also minoring in political science and psychology! I'm kinda shy and awkward sometimes but I love making friends, everyone at the protree is my friend and if you harass them I will get you!/srs | I might be offtab so just whisper me and I'll get back to you, please INT with me in anyway.. you can cuddle, hide, boop, IDC! I won't bite talk with me! If I don't answer please whisper me.| 
+Short about me: I'm a criminal justice major whos also minoring in political science and psychology! I'm kinda shy and awkward sometimes but I love making friends, everyone at the protree is my friend and if you harass them I will get you!/srs | I might be offtab so just whisper me and I'll get back to you, please INT with me in anyway.. you can cuddle, hide, boop, IDC! I won't bite talk with me! 
 
 </details>
 
-<details> 
-  <summary>Friends + Safe people</summary>  
+<details>
+<summary> ⎯⎯ㅤ ${\textsf{\color{#fe3837}safes / friends}}$ ღ </summary>
+
  
 [greenbeanx3](https://github.com/greenbeanx3)
 
 [saturniid-sys](https://github.com/saturniid-sys)
 
-[kkaleidoskull](https://github.com/kkaleidoskull) *miss you pookie ily/p*
+[davepeta](https://github.com/volatilic) 
 
 [datariker](https://github.com/datariker)
 
@@ -55,7 +53,7 @@ Short about me: I'm a criminal justice major whos also minoring in political sci
 
 [ThePluralEcosystem](https://github.com/ThePluralEcosystem)
 
-[p0staldud3](https://github.com/p0staldud3) *also miss you too pookie ily/p*
+[p0staldud3](https://github.com/p0staldud3) 
 
 [Cannibalistic-Ways-Of-Life](https://github.com/Cannibalistic-Ways-Of-Life)
 
@@ -67,6 +65,8 @@ Short about me: I'm a criminal justice major whos also minoring in political sci
 
 [CCaftoncest](https://github.com/CCaftoncest) 
 
+[pesky-birdie](https://github.com/pesky-birdie)
+
 And I'm pretty much friends with everyone at the protree (safe server) **Y'all can always INT with me even if I have DNI in my name!**
  
 </details>
@@ -74,7 +74,7 @@ And I'm pretty much friends with everyone at the protree (safe server) **Y'all c
 </p>
 
 <p align="center">
- <img width="800" src="https://64.media.tumblr.com/b1932ee06bc4b13e56fd72e9653edcb1/70ed8579ab0de378-3e/s500x750/3d75688770ba3c99f13775477f3ee68ca0ab4e60.gifv"
+ <img width="800" src="https://64.media.tumblr.com/8e934ccf78fb9e88d54075a0efc06b7a/58524b02b6bd614a-61/s1280x1920/d706f34c89e9a7babc99ce2b2cdbeccca9e44aff.pnj"
  </p>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zms6yv2ax4eqh3r96w3hlnvh5&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=ffb6c1&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=zms6yv2ax4eqh3r96w3hlnvh5&redirect=true)
@@ -82,7 +82,7 @@ And I'm pretty much friends with everyone at the protree (safe server) **Y'all c
 
 
 <details> 
-  <summary>This user...</summary>  
+  <summary> ⎯⎯ㅤ ${\textsf{\color{#fe3837}This user..}}$ ღ </summary>  
  
 ![](https://64.media.tumblr.com/176ae4c846275da0acb7e59f6e5f6ed2/7e7a17c822ba5eec-e2/s500x750/8db58574948e4c6db827dadd432b533699701058.jpg)
 ![](https://64.media.tumblr.com/a76b02e2a9c857e0e880d394dcb23196/1920154fc9fd3612-b4/s500x750/3d57c5c33d58a6bda642cab11b3daeb2af8afb2e.pnj)
@@ -123,7 +123,7 @@ And I'm pretty much friends with everyone at the protree (safe server) **Y'all c
 </details>
 
 <details> 
-  <summary>Disorders</summary>  
+  <summary> ⎯⎯ㅤ ${\textsf{\color{#fe3837}Disorders}}$ ღ </summary>  
 
  MDD + GAD + OSDD + POTS + ADHD
  
@@ -151,7 +151,7 @@ And I'm pretty much friends with everyone at the protree (safe server) **Y'all c
 
 
 <details> 
-  <summary>My blinkies/graphics (eyestrain + slight nsfw)</summary>  
+  <summary> ⎯⎯ㅤ ${\textsf{\color{#fe3837}Graphics // eyestrain + slight nsfw warn}}$ ღ </summary>  
 
 **Blinkies:**
 
