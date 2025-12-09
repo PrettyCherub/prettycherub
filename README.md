@@ -6,7 +6,7 @@
 <img src="https://64.media.tumblr.com/0884c019afb672f0e8d1c4fc3c92bcb0/406b28c7002c0f31-90/s400x600/a7643cd5e8b20107f347deb8ad32f3766ee094ae.pnj" align="right" width="40%"> <p align="center">   ${\textsf{\color{#fe3837}𝐼 𝓈𝒶𝓎 𝓌𝒽𝑒𝓃 𝓉𝑜 𝓈𝒾𝓉 𝒶𝓃𝒹 𝓈𝓉𝒶𝓎..}}$ <br> <img src="https://64.media.tumblr.com/4ae6c5e1efa061797b4eb6ea1b98581e/b8cd044ac524d7bb-5d/s2048x3072/c01b808eacd7bd72f8c47f2c7570c873f3c51e7a.pnj" height="40" width="240"/>
 <p align="center"> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#fe3837}dni.}}$ ღ </summary> basic dni (pedos,racists,ect) <br> under 13ㅤ<br> antis, though im willing to have a cvil conversation. <br> ${\textsf{\color{#fe3837}i will ragebait you or hide you!}}$ <br> </details> <details align="center">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#fe3837}interests.}}$ㅤღ </summary> ${\textsf{\color{#fe3837}WWE, JEM, HAZBIN HOTEL, DISPATCH}}$ <br> lego monkie kid,ㅤbaking,ㅤwarframe, <br> hazbin hotel,ㅤCRK/OB/TOA,ㅤhamilton,ㅤsouth park </details> <p align="center"> <img src="https://64.media.tumblr.com/4ae6c5e1efa061797b4eb6ea1b98581e/b8cd044ac524d7bb-5d/s2048x3072/c01b808eacd7bd72f8c47f2c7570c873f3c51e7a.pnj" height="40" width="240"/> <p align="center"> ${\textsf{\color{#fe3837}..𝑅𝑜𝓁𝓁 𝑜𝓋𝑒𝓇, 𝑜𝓇 𝑔𝑜 𝒻𝑒𝓉𝒸𝒽!}}$
+<summary> ⎯⎯ㅤ ${\textsf{\color{#fe3837}interests.}}$ㅤღ </summary> ${\textsf{\color{#fe3837}WWE, JEM, HAZBIN HOTEL, DISPATCH}}$ <br> daz games,ㅤwii sports/wii games,ㅤninah, <br> fnaf,ㅤSupernatural,ㅤMusicals,ㅤInvincible,  more on my carrd below </details> <p align="center"> <img src="https://64.media.tumblr.com/4ae6c5e1efa061797b4eb6ea1b98581e/b8cd044ac524d7bb-5d/s2048x3072/c01b808eacd7bd72f8c47f2c7570c873f3c51e7a.pnj" height="40" width="240"/> <p align="center"> ${\textsf{\color{#fe3837}..𝑅𝑜𝓁𝓁 𝑜𝓋𝑒𝓇, 𝑜𝓇 𝑔𝑜 𝒻𝑒𝓉𝒸𝒽!}}$
 
 <div align="center">
 
@@ -15,7 +15,7 @@
 
  <img src="https://64.media.tumblr.com/772601a28648c04cf1c9690687bb8265/232d390e5f4723e7-b0/s1280x1920/abdbd9047623d7d7f357e276a06f5e78e31d2169.pnj" width="950">
 
-<a href="https://prettycherub.carrd.co/">**Carrd**</a> *My card, way more info on it*
+<a href="https://prettycherub.carrd.co/">**Carrd**</a> *My card, way more info on it highly recommend you read*
 
 <a href="https://cherubponytown.straw.page/">**Strawpage**</a> **Heavy WIP #College** *still feel free to leave a gimmick!*
 
@@ -26,8 +26,6 @@ ${\textsf{\color{#fe3837}KINS ⊱✿⊰}}$ Jem (JEM) + Rosie (HAZBIN HOTEL) + Ni
 ${\textsf{\color{#fe3837}BYI ⊱✿⊰}}$ I'm a proshipper, this is what I mean when I call myself that. --> ["Proship"](https://define-proship.carrd.co/) (**Click the word proship) I personally don't ship anything deemed problematic.**  | I also will not shut up about my interests, _ESPECIALLY WWE, JEM, HH and Dispatch_
 
 We are a system - only close people get system info, you may ask whos fronting (mostly our host me!). Alter(s): who also play ponytown: [@AngelicArcee](https://github.com/AngelicArcee) + [@CarlytheClown](https://github.com/CarlytheClown) + [@AllAboutVelvet](https://github.com/AllAboutVelvet)
-
-Short about me: I'm a criminal justice major whos also minoring in political science and psychology! I'm kinda shy and awkward sometimes but I love making friends, everyone at the protree is my friend and if you harass them I will get you!/srs | I might be offtab so just whisper me and I'll get back to you, please INT with me in anyway.. you can cuddle, hide, boop, IDC! I won't bite talk with me! 
 
 </details>
 
@@ -66,6 +64,8 @@ Short about me: I'm a criminal justice major whos also minoring in political sci
 [CCaftoncest](https://github.com/CCaftoncest) 
 
 [pesky-birdie](https://github.com/pesky-birdie)
+
+[@deadlyclowning](https://github.com/deadlyclowning) They helped me code this! 
 
 And I'm pretty much friends with everyone at the protree (safe server) **Y'all can always INT with me even if I have DNI in my name!**
  
@@ -611,3 +611,4 @@ And I'm pretty much friends with everyone at the protree (safe server) **Y'all c
 
 
 </details>
+Credits to [@deadlyclowning](https://github.com/deadlyclowning) for helping me code this!!
