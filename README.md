@@ -78,15 +78,12 @@ And I'm pretty much friends with everyone at the protree (safe server) **Y'all c
  </p>
 
 
-
-<a href="https://PrettyCherub.pythonanywhere.com/link?spin=true&eq_color=fe3837&theme=dark">
+<a href="https://PrettyCherub.pythonanywhere.com/link">
   <img
-    src="https://PrettyCherub.pythonanywhere.com"
+    src="https://PrettyCherub.pythonanywhere.com?spin=true&scan=false&eq_color=fe3837&theme=dark"
     alt="Current Spotify Song"
   />
 </a>
-
-
 
 <details> 
   <summary> ⎯⎯ㅤ ${\textsf{\color{#fe3837}This user..}}$ ღ </summary>  
