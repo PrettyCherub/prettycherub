@@ -77,7 +77,14 @@ And I'm pretty much friends with everyone at the protree (safe server) **Y'all c
  <img width="800" src="https://64.media.tumblr.com/8e934ccf78fb9e88d54075a0efc06b7a/58524b02b6bd614a-61/s1280x1920/d706f34c89e9a7babc99ce2b2cdbeccca9e44aff.pnj"
  </p>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zms6yv2ax4eqh3r96w3hlnvh5&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=ffb6c1&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=zms6yv2ax4eqh3r96w3hlnvh5&redirect=true)
+
+
+<a href="https://PrettyCherub.pythonanywhere.com/link?spin=true&eq_color=fe3837&theme=dark">
+  <img
+    src="https://PrettyCherub.pythonanywhere.com"
+    alt="Current Spotify Song"
+  />
+</a>
 
 
 
