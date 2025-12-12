@@ -10,7 +10,7 @@
 
 <div align="center">
 
-  ![](https://komarev.com/ghpvc/?username=PrettyCherub&color=fe3837)
+  ![](https://komarev.com/ghpvc/?username=PrettyCherub-username&color=fe3837&label=Cannibals)
 </div>
 
  <img src="https://64.media.tumblr.com/772601a28648c04cf1c9690687bb8265/232d390e5f4723e7-b0/s1280x1920/abdbd9047623d7d7f357e276a06f5e78e31d2169.pnj" width="950">
