@@ -47,7 +47,7 @@ We are a system - only close people get system info, you may ask whos fronting (
 
 [Rainy-chaos-sys](https://github.com/Rainy-chaos-sys)
 
-[GothicCowboy](https://github.com/GothicCowboy)
+[GothicCowgirl](https://github.com/Gothiccowgirl)
 
 [ThePluralEcosystem](https://github.com/ThePluralEcosystem)
 
