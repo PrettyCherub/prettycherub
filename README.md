@@ -1,6 +1,5 @@
 <img src="https://file.garden/aLcUmNZBvTGYyXJl/jempopup.png" align="left" width="40%"><p align="center"> ${\textsf{\color{#f14398}ɪᴛ'ꜱ ᴛʀᴜʟʏ, ᴛʀᴜʟʏ ᴏᴜᴛʀᴀɢᴇᴏᴜꜱ}}$ <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/barbiepink.gifv" height="40" width="240"/><p align="center"> ${\textsf{\color{#f14398}Cherub}}$ ㅤ/ㅤ<i> Jem </i> <br> They ♡ She⠀⸝⠀18 <br> Traumagenic OSDD ⎯⎯⎯ Host <br> ${\textsf{\color{#f14398}Pro}}$⎯⎯ficㅤ &&.ㅤ ${\textsf{\color{#f14398}Pro}}$⎯⎯ship. <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/barbiepink.gifv" height="40" width="240"/>
 <br> 
-${\textsf{\color{#d7b7d5}test}}$
 
 <img src="https://file.garden/aLcUmNZBvTGYyXJl/JemTV.gif" align="right" width="40%"> <p align="center">   ${\textsf{\color{#f14398}ʙᴇɪɴɢ ᴀɴʏᴏɴᴇ ɪ ᴡᴀɴɴᴀ ʙᴇ}}$ <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/barbiepink.gifv" height="40" width="240"/>
 <p align="center"> <details align="center">
@@ -19,7 +18,7 @@ ${\textsf{\color{#d7b7d5}test}}$
 
 <a href="https://cherubponytown.straw.page/">**Strawpage**</a> **Heavy WIP #College** *still feel free to leave a gimmick!*
 
-[Socials and more here](https://prettycherub.my.canva.site/)
+[Socials and more here](https://guns.lol/prettycherub)
 
 ${\textsf{\color{#f14398}KINS ⊱✿⊰}}$ Jem (JEM) + Rosie (HAZBIN HOTEL) + Niffty (HAZBIN HOTEL)
 
@@ -113,6 +112,16 @@ And I'm pretty much friends with everyone at the protree (safe server) **Y'all c
 ![](https://64.media.tumblr.com/0c82b673d0bc54ab4396531378588551/12b83be7f3afc336-bd/s400x600/4ee596132fc3ee2bd45e1e72ec4afee432125dc9.pnj)
 ![](https://64.media.tumblr.com/51119e90005cc33397df97903bf32a22/617a5c7071adee4e-67/s500x750/492dab5abbf0d4278ef5a762680f2f0330706104.pnj)
 ![](https://64.media.tumblr.com/53788813ae386c855015a684d34a5d2e/8e4c88fff99eef13-1b/s640x960/62952bcce80994246034cc95c40a4411971d2be0.pnj)
+![](https://64.media.tumblr.com/1ceed4d742fe00e1f357765ac4cfdfab/2596439998e9acda-06/s500x750/0c46830179f349675ad6013278ce7b547d3c9c2c.jpg)
+![](https://64.media.tumblr.com/4874f0c5c72c9d1147144062c1c493c5/ff4588c05a478b0b-3c/s500x750/ec28a064b64c9e72b11c3cb4d814e3c83ec1a56f.jpg)
+![](https://64.media.tumblr.com/13dcdc2e7071c75c0199fe83a4cf9a23/523959bc663126ff-25/s1280x1920/bf03d16c695c78eb151f2122c08c27d7d2912cf5.pnj)
+![](https://64.media.tumblr.com/7441b5f44ddea64dc20a308f24502981/8241699db23afa37-b8/s400x600/a5daf07325c1ade2b2f20ddbfb97eefe64078ce0.pnj)
+![](https://64.media.tumblr.com/1eff70de296796d1bf12f688455d50e1/8698f4e20f9b0f70-b2/s500x750/252ac31f98cddd94e6f7648534b6988afaae6689.pnj)
+![](https://64.media.tumblr.com/29b1f43ae5b178603b1cb36ca3dd66f9/31a7f0e73fd553ba-7e/s640x960/cdccf0f18361a92820842a9d9b0f3e43eeb8a6d8.pnj)
+![](https://64.media.tumblr.com/e479a77a28fc39310046697cbd940b56/d29adeb287160e0e-cb/s500x750/d3859d7fd34a21da849e920313cedc0ccfaa876f.pnj)
+![](https://64.media.tumblr.com/cfb33be8bd02322a79b313344d27cba9/269e1365d9f6e532-64/s500x750/6465b864028be6937e6eab58b9c0b7161484e015.pnj)
+![](https://64.media.tumblr.com/67ca4afb8cce023d54988e210ae9aafd/a255d1b96c67252a-17/s2048x3072/cb2d74eb54c444aefe6db6675308013331510dc1.pnj)
+![](https://64.media.tumblr.com/4af898babb5d45adc96be26e1381417b/f4177996919794aa-08/s540x810/b5aa5760db407ae87ee22b469876dfa4de5627c9.pnj)
 ![]()
 ![]()
 ![]()
@@ -370,11 +379,23 @@ And I'm pretty much friends with everyone at the protree (safe server) **Y'all c
 ![](https://64.media.tumblr.com/14df5fe5a6b3bdc345418efa4d879a16/5732e589548c1c67-e7/s250x400/709be45e747f9cc1e607aa611002ff27ce614378.gifv)
 ![](https://64.media.tumblr.com/50091742ee8b93375870f6915887b80e/68ac1049942f2da4-fa/s250x400/4cdb896850d6486f4fae060018b79bfe746df6e3.gifv)
 ![](https://64.media.tumblr.com/ad08d51344d5d4cb6fac9b433a523da8/68ac1049942f2da4-3e/s250x400/5380224908681137a0d4452559c411d571b5a406.gifv)
+![](https://64.media.tumblr.com/90f8131c1a10b704d2b3efeea64b3e7f/523959bc663126ff-fc/s1280x1920/4ffef0edfaf19c2aef4cef43e163aa739135e905.gifv)
+![](https://64.media.tumblr.com/81bcc3c99752b90eeb6e2ac1f7a41fc5/f16f5b4bd24f7ec0-41/s250x400/77b27ff44dbd6502ecf7ccd4de41b407afa1beed.gifv)
+![](https://64.media.tumblr.com/d346ae366e328ccff2935a9eb8ee5656/3c4cb11a7b62132e-6b/s250x400/bbb9e0eabd285d0d94682f91f41307e49997f056.gifv)
+![](https://64.media.tumblr.com/1a60749efa6692a0987b5b45acd4811b/3c4cb11a7b62132e-dc/s250x400/d6a96151212b7e3afc882abed8e86d6a20a0cbd4.gifv)
+![](https://64.media.tumblr.com/553b41cb2096a9a8370ad60fccf81175/e6c3d6e24bb9e481-c9/s250x400/92a80653bf6d3cedcede95c2042fef7945061be3.gifv)
+![](https://64.media.tumblr.com/edbf1c83c46ab85a57da283b60092c56/0a31dc5637e41a71-24/s250x400/a1674a8e770be7fb864902bf1db38e0a33e8e206.gifv)
 ![]()
 ![]()
 ![]()
 ![]()
 ![]()
+![]()
+![]()
+![]()
+![]()
+![]()
+
 
 
 
@@ -423,7 +444,7 @@ And I'm pretty much friends with everyone at the protree (safe server) **Y'all c
 ![](https://64.media.tumblr.com/68586ec9fd36d3f338c3a9047e36a289/3e4d1846e4f07c0f-90/s75x75_c1/36a736199bc8ef77a6941f84dc02e6d9b615d856.gifv)
 ![](https://64.media.tumblr.com/56075cc6a54d60b8efb669a4f83014ba/3e4d1846e4f07c0f-d6/s75x75_c1/8284e420a3ca78081107ade6970a402ab5b07fc6.gifv)
 ![](https://64.media.tumblr.com/8b6bfacd57bba09aec9c5e81d731a23a/dff12cee82362a3a-6b/s100x200/d22a4fe7a5c5f7bad2b0f3a4740e76fb77894623.gifv)
-![]()
+![](https://64.media.tumblr.com/80307e8600180210fa0b539b2f182f6c/922dd50f16f9fc88-a3/s100x200/60bea64c49e19cfd02aa911611a98c8965abac11.gifv)
 ![]()
 ![]()
 ![]()
@@ -586,8 +607,8 @@ And I'm pretty much friends with everyone at the protree (safe server) **Y'all c
 ![](https://64.media.tumblr.com/9f3192d0a23423a5b39c10c6e4dfa967/2c79849150adb019-7c/s250x400/be32e6dfda700348bb71fbc82146551e39126f63.pnj)
 ![](https://64.media.tumblr.com/9a50fe963262c5fc36bf279f1a94b072/3c04a6d0b4ada58b-6e/s100x200/bbcb8519506edb1e78527567e4acc116a73587a0.pnj)
 ![](https://64.media.tumblr.com/869ce0a1ea250c22c5ec2631a2e92c0a/3c04a6d0b4ada58b-94/s100x200/34484f803f476ac5d9d15c32b007457a32d288e6.pnj)
-![]()
-![]()
+![](https://64.media.tumblr.com/7b4ebd41aa49cdc2226ae673f4ad930b/f16f5b4bd24f7ec0-20/s250x400/0cb6309b5271292fe2b0d93e703143632e1a07bb.gifv)
+![](https://64.media.tumblr.com/29093310fad9a6e9d6f3b40826d7a48e/aa9bbd09a38b9c81-85/s250x400/8ce4146bf3c97a6d60cd385bcb47f590e502d0c2.gifv)
 ![]()
 ![]()
 ![]()
