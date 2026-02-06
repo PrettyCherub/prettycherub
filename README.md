@@ -22,7 +22,7 @@
 
 ${\textsf{\color{#f14398}KINS ⊱✿⊰}}$ Jem (JEM) + Rosie (HAZBIN HOTEL) + Niffty (HAZBIN HOTEL)
 
-<img src="https://file.garden/aLcUmNZBvTGYyXJl/jemuserbox1.gif" align="center" width="40%"> <img src="https://file.garden/aLcUmNZBvTGYyXJl/rosieuser" align="center" width="40%"> 
+<img src="https://file.garden/aLcUmNZBvTGYyXJl/jemuserbox1.gif" align="center" width="40%">
 *User box made by my friend [Lamb/Sal](https://github.com/Cannibalistic-Ways-Of-Life)*
 
 ${\textsf{\color{#f14398}BYI ⊱✿⊰}}$ I'm a proshipper, this is what I mean when I call myself that. --> ["Proship"](https://define-proship.carrd.co/) (**Click the word proship) I personally don't ship anything deemed problematic.**  | I also will not shut up about my interests, _ESPECIALLY WWE, JEM, HH and Dispatch_
