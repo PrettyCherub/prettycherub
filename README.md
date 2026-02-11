@@ -12,22 +12,30 @@
   ![](https://komarev.com/ghpvc/?username=PrettyCherub-username&color=f14398&label=Popstars)
 </div>
 
- <img src="https://file.garden/aLcUmNZBvTGYyXJl/sparklepink.webp" width="950">
+<details>
+<summary> ⎯⎯ㅤ ${\textsf{\color{#f14398}links}}$ ღ </summary>
 
-<a href="https://prettycherub.carrd.co/">**Carrd**</a> *My card, way more info on it highly recommend you read*
 
-<a href="https://cherubponytown.straw.page/">**Strawpage**</a> **Heavy WIP #College** *still feel free to leave a gimmick!*
+[Strawpage](https://cherubponytown.straw.page/)
 
-[Socials and more here](https://guns.lol/prettycherub)
+[Carrd](https://prettycherub.carrd.co/)
+
+[All Socials, including discord](https://guns.lol/prettycherub)
+ 
+</details>
+
+</p>
 
 ${\textsf{\color{#f14398}KINS ⊱✿⊰}}$ Jem (JEM) + Rosie (HAZBIN HOTEL) + Niffty (HAZBIN HOTEL)
 
+${\textsf{\color{#f14398}BYI ⊱✿⊰}}$ I consider myself Proship and Pro-fic and this is what I mean by these statements: [Proship Carrd](https://define-proship.carrd.co/) and [Pro-fic Carrd](https://profic101.carrd.co/)  | I dont ship anything "problematic" or "dark" I'm just an adult who has been around long enough to say I don't care what people ship or read **as long as it's not condoned irl** | *We are a system - only close people get system info, you may ask whos fronting (mostly our host me!).* 
+
+
 <img src="https://file.garden/aLcUmNZBvTGYyXJl/jemuserbox1.gif" align="center" width="40%">
-*User box made by my friend [Lamb/Sal](https://github.com/Cannibalistic-Ways-Of-Life)*
-
-${\textsf{\color{#f14398}BYI ⊱✿⊰}}$ I'm a proshipper, this is what I mean when I call myself that. --> ["Proship"](https://define-proship.carrd.co/) (**Click the word proship) I personally don't ship anything deemed problematic.**  | I also will not shut up about my interests, _ESPECIALLY WWE, JEM, HH and Dispatch_
-
-We are a system - only close people get system info, you may ask whos fronting (mostly our host me!). Alter(s): who also play ponytown: [@AngelicArcee](https://github.com/AngelicArcee) + [@CarlytheClown](https://github.com/CarlytheClown) + [@AllAboutVelvet](https://github.com/AllAboutVelvet)
+<img src="https://file.garden/aLcUmNZBvTGYyXJl/jemuserbox2-ezgif.com-optimize.gif" align="center" width="40%">
+<img src="https://file.garden/aLcUmNZBvTGYyXJl/Rosieuserbox1%20(1).gif" align="center" width="40%">
+<img src="https://file.garden/aLcUmNZBvTGYyXJl/Rozieuserbox2%20(1).gif" align="center" width="40%">
+<sup><sub>Made by: Lamb | https://github.com/Cannibalistic-Ways-Of-Life</sub></sup>
 
 </details>
 
@@ -45,7 +53,13 @@ We are a system - only close people get system info, you may ask whos fronting (
 
 [Michael-Afton1983](https://github.com/Michael-Afton1983)
 
-[WalkingTW](https://github.com/WalkingTW)
+[MissSkunky](https://github.com/MissSkunky)
+
+[Valmpyre](https://github.com/Valmpyre)
+
+[RIAMU](https://github.com/RlAMU)
+
+[Loki1387](https://github.com/Loki1387)
 
 [Rainy-chaos-sys](https://github.com/Rainy-chaos-sys)
 
