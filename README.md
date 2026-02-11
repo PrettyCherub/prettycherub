@@ -1,4 +1,4 @@
-<img src="https://file.garden/aLcUmNZBvTGYyXJl/jempopup.png" align="left" width="40%"><p align="center"> ${\textsf{\color{#f14398}ɪᴛ'ꜱ ᴛʀᴜʟʏ, ᴛʀᴜʟʏ ᴏᴜᴛʀᴀɢᴇᴏᴜꜱ}}$ <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/barbiepink.gifv" height="40" width="240"/><p align="center"> ${\textsf{\color{#f14398}Cherub}}$ ㅤ/ㅤ<i> Jem </i> <br> They ♡ She⠀⸝⠀18 <br> Traumagenic OSDD ⎯⎯⎯ Host <br> ${\textsf{\color{#f14398}Pro}}$⎯⎯ficㅤ &&.ㅤ ${\textsf{\color{#f14398}Pro}}$⎯⎯ship. <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/barbiepink.gifv" height="40" width="240"/>
+<img src="https://file.garden/aLcUmNZBvTGYyXJl/jempopup.png" align="left" width="40%"><p align="center"> ${\textsf{\color{#f14398}ɪᴛ'ꜱ ᴛʀᴜʟʏ, ᴛʀᴜʟʏ ᴏᴜᴛʀᴀɢᴇᴏᴜꜱ}}$ <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/barbiepink.gifv" height="40" width="240"/><p align="center"> ${\textsf{\color{#f14398}Cherub}}$ ㅤ/ㅤ<i> Jem </i> <br> They ♡ She⠀⸝⠀18 <br> Traumagenic OSDD ⎯⎯⎯ Host <br> ${\textsf{\color{#f14398}Pro}}$⎯⎯ficㅤ &&.ㅤ ${\textsf{\color{#f14398}Pro}}$⎯⎯ship. <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/barbiepink.gifv" height="40" width="240"/> ${\textsf{\color{#f14398}ᴀ ꜰᴀɴᴛᴀꜱʏ}}$
 <br> 
 
 <img src="https://file.garden/aLcUmNZBvTGYyXJl/JemTV.gif" align="right" width="40%"> <p align="center">   ${\textsf{\color{#f14398}ʙᴇɪɴɢ ᴀɴʏᴏɴᴇ ɪ ᴡᴀɴɴᴀ ʙᴇ}}$ <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/barbiepink.gifv" height="40" width="240"/>
@@ -81,7 +81,7 @@ ${\textsf{\color{#f14398}BYI ⊱✿⊰}}$ I consider myself Proship and Pro-fic 
 
 [pesky-birdie](https://github.com/pesky-birdie)
 
-[@deadlyclowning](https://github.com/deadlyclowning) They helped me code this! 
+[deadlyclowning](https://github.com/deadlyclowning) *Helped me code this, thanks boo*
 
 And I'm pretty much friends with everyone at the protree (safe server) **Y'all can always INT with me even if I have DNI in my name!**
  
@@ -654,4 +654,3 @@ And I'm pretty much friends with everyone at the protree (safe server) **Y'all c
 
 </details>
 
-Credit to: [@deadlyclowning](https://github.com/deadlyclowning) 
