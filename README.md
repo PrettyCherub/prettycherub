@@ -32,11 +32,6 @@ ${\textsf{\color{#f14398}KINS ⊱✿⊰}}$ Jem (JEM) + Rosie (HAZBIN HOTEL) + Ni
 ${\textsf{\color{#f14398}BYI ⊱✿⊰}}$ I consider myself Proship and Pro-fic and this is what I mean by these statements: [Proship Carrd](https://define-proship.carrd.co/) and [Pro-fic Carrd](https://profic101.carrd.co/)  | I dont ship anything "problematic" or "dark" I'm just an adult who has been around long enough to say I don't care what people ship or read **as long as it's not condoned irl** | *We are a system - only close people get system info, you may ask whos fronting (mostly our host me!).* 
 
 
-<img src="https://file.garden/aLcUmNZBvTGYyXJl/jemuserbox1.gif" align="center" width="40%">
-<img src="https://file.garden/aLcUmNZBvTGYyXJl/jemuserbox2-ezgif.com-optimize.gif" align="center" width="40%">
-<img src="https://file.garden/aLcUmNZBvTGYyXJl/Rosieuserbox1%20(1).gif" align="center" width="40%">
-<img src="https://file.garden/aLcUmNZBvTGYyXJl/Rozieuserbox2%20(1).gif" align="center" width="40%">
-<sup><sub>Made by: Lamb | https://github.com/Cannibalistic-Ways-Of-Life</sub></sup>
 
 </details>
 
@@ -69,8 +64,6 @@ ${\textsf{\color{#f14398}BYI ⊱✿⊰}}$ I consider myself Proship and Pro-fic 
 [ThePluralEcosystem](https://github.com/ThePluralEcosystem)
 
 [p0staldud3](https://github.com/p0staldud3) 
-
-[Cannibalistic-Ways-Of-Life](https://github.com/Cannibalistic-Ways-Of-Life)
 
 [Dazaku](https://github.com/dazaku)
 
