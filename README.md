@@ -2,7 +2,7 @@
 ${\textsf{\color{#61131a}In the end, you will see that I was right}}$
 <br> 
 
-<img src="https://file.garden/aLcUmNZBvTGYyXJl/dec2.png" align="right" width="40%"> <p align="center">   ${\textsf{\color{#61131a}	
+<img src="https://file.garden/aLcUmNZBvTGYyXJl/dec4.png" align="right" width="40%"> <p align="center">   ${\textsf{\color{#61131a}	
 This is your end!}}$ <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/blooddivider.pnj" height="40" width="240"/>
 <p align="center"> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#61131a}dni.}}$ ღ </summary> basic dni (pedos,racists,ect) <br> under 13ㅤ<br> antis, though im willing to have a cvil conversation. <br> ${\textsf{\color{#61131a}i will ragebait you or hide you!}}$ <br> </details> <details align="center">
