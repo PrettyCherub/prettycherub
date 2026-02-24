@@ -1,9 +1,8 @@
-<img src="https://file.garden/aLcUmNZBvTGYyXJl/dec1.png" align="left" height="50%" width="40%"><p align="center"> ${\textsf{\color{#61131a}I shall become more terrifying than any Witch!}}$ <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/blooddivider.pnj" height="40" width="240"/><p align="center"> ${\textsf{\color{#61131a}Cherub}}$ ㅤ/ㅤ<i> Jem </i> <br> They ♡ She⠀⸝⠀18 <br> Traumagenic OSDD ⎯⎯⎯ Host <br> ${\textsf{\color{#61131a}Pro}}$⎯⎯ficㅤ &&.ㅤ ${\textsf{\color{#61131a}Pro}}$⎯⎯ship. <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/blooddivider.pnj" height="40" width="240"/> <br>
-${\textsf{\color{#61131a}In the end, you will see that I was right}}$
+<img src="https://file.garden/aLcUmNZBvTGYyXJl/dec1.png" align="left" width="40%"><p align="center"> ${\textsf{\color{#61131a}I shall become more terrifying than any Witch!}}$ <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/blooddivider.pnj" height="40" width="240"/><p align="center"> ${\textsf{\color{#61131a}Cherub}}$ ㅤ/ㅤ<i> Jem </i> <br> They ♡ She⠀⸝⠀18 <br> Traumagenic OSDD ⎯⎯⎯ Host <br> ${\textsf{\color{#61131a}Pro}}$⎯⎯ficㅤ &&.ㅤ ${\textsf{\color{#61131a}Pro}}$⎯⎯ship. <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/blooddivider.pnj" height="40" width="240"/> <br> ${\textsf{\color{#61131a}In the end, you will see that I was right}}$
 <br> 
 
-<img src="https://file.garden/aLcUmNZBvTGYyXJl/dec4.png" align="right" width="40%"> <p align="center">   ${\textsf{\color{#61131a}	
-This is your end!}}$ <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/blooddivider.pnj" height="40" width="240"/>
+<img src="https://file.garden/aLcUmNZBvTGYyXJl/dec4.png" align="right" width="40%"> <p align="center">
+<img src="https://file.garden/aLcUmNZBvTGYyXJl/blooddivider.pnj" height="40" width="240"/>
 <p align="center"> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#61131a}dni.}}$ ღ </summary> basic dni (pedos,racists,ect) <br> under 13ㅤ<br> antis, though im willing to have a cvil conversation. <br> ${\textsf{\color{#61131a}i will ragebait you or hide you!}}$ <br> </details> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#61131a}interests.}}$ㅤღ </summary> ${\textsf{\color{#f61131a}WWE, JEM, HAZBIN HOTEL, CRK}}$ <br> daz games,ㅤwii sports/wii games,ㅤninah, <br> fnaf,ㅤSupernatural,ㅤMusicals,ㅤInvincible,  more on my carrd below </details> <p align="center"> <img src="https://file.garden/aLcUmNZBvTGYyXJl/blooddivider.pnj" height="40" width="240"/> <p align="center"> ${\textsf{\color{#61131a}Only I can grant the power to defeat the Witches!
