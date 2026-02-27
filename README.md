@@ -1,5 +1,4 @@
 <img src="https://file.garden/aLcUmNZBvTGYyXJl/jempopup.png" align="left" width="40%"><p align="center"> ${\textsf{\color{#f14398}ɪᴛ'ꜱ ᴛʀᴜʟʏ, ᴛʀᴜʟʏ ᴏᴜᴛʀᴀɢᴇᴏᴜꜱ}}$ <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/barbiepink.gifv" height="40" width="240"/><p align="center"> ${\textsf{\color{#f14398}Cherub}}$ ㅤ/ㅤ<i> Jem </i> <br> They ♡ She⠀⸝⠀18 <br> Traumagenic OSDD ⎯⎯⎯ Host <br> ${\textsf{\color{#f14398}Pro}}$⎯⎯ficㅤ &&.ㅤ ${\textsf{\color{#f14398}Pro}}$⎯⎯ship. <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/barbiepink.gifv" height="40" width="240"/> <br>
-${\textsf{\color{#f14398}ᴀ ꜰᴀɴᴛᴀꜱʏ}}$
 <br> 
 
 <img src="https://file.garden/aLcUmNZBvTGYyXJl/JemTV.gif" align="right" width="40%"> <p align="center">   ${\textsf{\color{#f14398}ʙᴇɪɴɢ ᴀɴʏᴏɴᴇ ɪ ᴡᴀɴɴᴀ ʙᴇ}}$ <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/barbiepink.gifv" height="40" width="240"/>
