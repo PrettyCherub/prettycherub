@@ -17,7 +17,7 @@ ${\textsf{\color{#f14398}ᴀ ꜰᴀɴᴛᴀꜱʏ}}$
 <summary> ⎯⎯ㅤ ${\textsf{\color{#f14398}links}}$ ღ </summary>
 
 
-[Strawpage](https://cherubponytown.straw.page/)
+[Strawpage](https://jemsnotebook.straw.page/)
 
 [Carrd](https://prettycherub.carrd.co/)
 
