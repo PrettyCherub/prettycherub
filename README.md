@@ -1,4 +1,4 @@
-<img src="https://file.garden/aLcUmNZBvTGYyXJl/jempopup.png" align="left" width="40%"><p align="center"> ${\textsf{\color{#f14398}ɪᴛ'ꜱ ᴛʀᴜʟʏ, ᴛʀᴜʟʏ ᴏᴜᴛʀᴀɢᴇᴏᴜꜱ}}$ <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/barbiepink.gifv" height="40" width="240"/><p align="center"> ${\textsf{\color{#f14398}Cherub}}$ ㅤ/ㅤ<i> Jem </i> <br> They ♡ She⠀⸝⠀18 <br> Traumagenic OSDD ⎯⎯⎯ Host <br> ${\textsf{\color{#f14398}Pro}}$⎯⎯ficㅤ &&.ㅤ ${\textsf{\color{#f14398}Pro}}$⎯⎯ship. <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/barbiepink.gifv" height="40" width="240"/> <br>
+<img src="https://file.garden/aLcUmNZBvTGYyXJl/jempopup.png" align="left" width="40%"><p align="center"> ${\textsf{\color{#f14398}ɪᴛ'ꜱ ᴛʀᴜʟʏ, ᴛʀᴜʟʏ ᴏᴜᴛʀᴀɢᴇᴏᴜꜱ}}$ <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/barbiepink.gifv" height="40" width="240"/><p align="center"> ${\textsf{\color{#f14398}Cherub}}$ ㅤ/ㅤ<i> Jem </i> <br> They ♡ She⠀⸝⠀18 <br> Traumagenic OSDD ⎯⎯⎯ Host <br> ${\textsf{\color{#f14398}Pro}}$⎯⎯ficㅤ &&.ㅤ ${\textsf{\color{#f14398}Anti}}$⎯⎯Harassment. <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/barbiepink.gifv" height="40" width="240"/> <br>
 <br> 
 
 <img src="https://file.garden/aLcUmNZBvTGYyXJl/JemTV.gif" align="right" width="40%"> <p align="center">   ${\textsf{\color{#f14398}ʙᴇɪɴɢ ᴀɴʏᴏɴᴇ ɪ ᴡᴀɴɴᴀ ʙᴇ}}$ <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/barbiepink.gifv" height="40" width="240"/>
@@ -16,7 +16,7 @@
 <summary> ⎯⎯ㅤ ${\textsf{\color{#f14398}links}}$ ღ </summary>
 
 
-unlinking straw and ata due to being dogpiled with death threats
+unlinking straw and ata due to being dogpiled with death threats if ur from that regi im sorry please stop harassing me :(
 
 [All Socials, including discord](https://guns.lol/prettycherub)
  
@@ -26,7 +26,7 @@ unlinking straw and ata due to being dogpiled with death threats
 
 ${\textsf{\color{#f14398}KINS ⊱✿⊰}}$ Jem (JEM) + Doux (TDKDITK) 
 
-${\textsf{\color{#f14398}BYI ⊱✿⊰}}$ I consider myself Proship and Pro-fic and this is what I mean by these statements: [Proship Carrd](https://define-proship.carrd.co/) and [Pro-fic Carrd](https://profic101.carrd.co/)  | I dont ship anything "problematic" or "dark" I'm just an adult who has been around long enough to say I don't care what people ship or read **as long as it's not condoned irl** | *We are a system - only close people get system info, you may ask whos fronting (mostly our host me!).* 
+${\textsf{\color{#f14398}BYI ⊱✿⊰}}$ I consider myself Anti-Harassment and pro-fic, here is what I mean by that. [Anti-Harassment Carrd](https://define-proship.carrd.co/) and [Pro-fic Carrd](https://profic101.carrd.co/)  | I dont ship anything "problematic" or "dark" I'm just an adult who has been around long enough to say I don't care what people ship or read **as long as it's not condoned irl** | *We are a system - only close people get system info, you may ask whos fronting (mostly our host me!).* 
 
 
 
