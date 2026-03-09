@@ -16,9 +16,7 @@
 <summary> ⎯⎯ㅤ ${\textsf{\color{#f14398}links}}$ ღ </summary>
 
 
-[Strawpage](https://jemsnotebook.straw.page/)
-
-[Carrd](https://prettycherub.carrd.co/)
+unlinking straw and ata due to being dogpiled with death threats
 
 [All Socials, including discord](https://guns.lol/prettycherub)
  
@@ -26,7 +24,7 @@
 
 </p>
 
-${\textsf{\color{#f14398}KINS ⊱✿⊰}}$ Jem (JEM) + Rosie (HAZBIN HOTEL) + Niffty (HAZBIN HOTEL)
+${\textsf{\color{#f14398}KINS ⊱✿⊰}}$ Jem (JEM) + Doux (TDKDITK) 
 
 ${\textsf{\color{#f14398}BYI ⊱✿⊰}}$ I consider myself Proship and Pro-fic and this is what I mean by these statements: [Proship Carrd](https://define-proship.carrd.co/) and [Pro-fic Carrd](https://profic101.carrd.co/)  | I dont ship anything "problematic" or "dark" I'm just an adult who has been around long enough to say I don't care what people ship or read **as long as it's not condoned irl** | *We are a system - only close people get system info, you may ask whos fronting (mostly our host me!).* 
 
