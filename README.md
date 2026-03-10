@@ -3,7 +3,7 @@
 
 <img src="https://file.garden/aLcUmNZBvTGYyXJl/JemTV.gif" align="right" width="40%"> <p align="center">   ${\textsf{\color{#f14398}ʙᴇɪɴɢ ᴀɴʏᴏɴᴇ ɪ ᴡᴀɴɴᴀ ʙᴇ}}$ <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/barbiepink.gifv" height="40" width="240"/>
 <p align="center"> <details align="center">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#f14398}dni.}}$ ღ </summary> basic dni (pedos,racists,ect) <br> under 13ㅤ<br> antis, though im willing to have a cvil conversation. <br> ${\textsf{\color{#f14398}i will ragebait you or hide you!}}$ <br> </details> <details align="center">
+<summary> ⎯⎯ㅤ ${\textsf{\color{#f14398}dni.}}$ ღ </summary> basic dni (pedos,racists,ect) <br> under 13ㅤ<br> antis, though im willing to have a cvil conversation. jem doubles <br> ${\textsf{\color{#f14398}i will ragebait you or hide you!}}$ <br> </details> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#f14398}interests.}}$ㅤღ </summary> ${\textsf{\color{#f14398}WWE, JEM, HAZBIN HOTEL, DISPATCH}}$ <br> daz games,ㅤwii sports/wii games,ㅤninah, <br> fnaf,ㅤSupernatural,ㅤMusicals,ㅤInvincible,  more on my carrd below </details> <p align="center"> <img src="https://file.garden/aLcUmNZBvTGYyXJl/barbiepink.gifv" height="40" width="240"/> <p align="center"> ${\textsf{\color{#f14398}ᴀɴᴅ ᴏɴ ᴛᴏᴘ ᴏꜰ ɪᴛ ᴀʟʟ, ʏᴏᴜ'ʀᴇ ʜᴇʀᴇ ᴡɪᴛʜ ᴍᴇ, ᴏʜ!
 }}$
 
@@ -25,7 +25,7 @@
 
 </p>
 
-${\textsf{\color{#f14398}KINS ⊱✿⊰}}$ Jem (JEM) + Doux (TDKDITK) 
+${\textsf{\color{#f14398}KINS ⊱✿⊰}}$ Jem (JEM) - I am a fictkin of Jem, I am her ^_^
 
 ${\textsf{\color{#f14398}BYI ⊱✿⊰}}$ I consider myself Anti-Harassment and pro-fic, here is what I mean by that. [Anti-Harassment Carrd](https://define-proship.carrd.co/) and [Pro-fic Carrd](https://profic101.carrd.co/)  | I'm just an adult who has been around long enough to say I don't care what people ship or read **as long as it's not condoned irl** | *We are a system - only close people get system info, you may ask whos fronting (mostly our host me!).* 
 
