@@ -15,8 +15,9 @@
 <details>
 <summary> ⎯⎯ㅤ ${\textsf{\color{#f14398}links}}$ ღ </summary>
 
+[Strawpage](https://jemsnotebook.straw.page)
 
-unlinking straw and ata due to being dogpiled with death threats if ur from that regi im sorry please stop harassing me :(
+[Carrd](https://prettycherub.carrd.co)
 
 [All Socials, including discord](https://guns.lol/prettycherub)
  
@@ -26,57 +27,12 @@ unlinking straw and ata due to being dogpiled with death threats if ur from that
 
 ${\textsf{\color{#f14398}KINS ⊱✿⊰}}$ Jem (JEM) + Doux (TDKDITK) 
 
-${\textsf{\color{#f14398}BYI ⊱✿⊰}}$ I consider myself Anti-Harassment and pro-fic, here is what I mean by that. [Anti-Harassment Carrd](https://define-proship.carrd.co/) and [Pro-fic Carrd](https://profic101.carrd.co/)  | I dont ship anything "problematic" or "dark" I'm just an adult who has been around long enough to say I don't care what people ship or read **as long as it's not condoned irl** | *We are a system - only close people get system info, you may ask whos fronting (mostly our host me!).* 
+${\textsf{\color{#f14398}BYI ⊱✿⊰}}$ I consider myself Anti-Harassment and pro-fic, here is what I mean by that. [Anti-Harassment Carrd](https://define-proship.carrd.co/) and [Pro-fic Carrd](https://profic101.carrd.co/)  | I'm just an adult who has been around long enough to say I don't care what people ship or read **as long as it's not condoned irl** | *We are a system - only close people get system info, you may ask whos fronting (mostly our host me!).* 
 
 
 
 </details>
 
-<details>
-<summary> ⎯⎯ㅤ ${\textsf{\color{#f14398}safes / friends}}$ ღ </summary>
-
- 
-[greenbeanx3](https://github.com/greenbeanx3)
-
-[saturniid-sys](https://github.com/saturniid-sys)
-
-[davepeta](https://github.com/volatilic) 
-
-[datariker](https://github.com/datariker)
-
-[Michael-Afton1983](https://github.com/Michael-Afton1983)
-
-[MissSkunky](https://github.com/MissSkunky)
-
-[Valmpyre](https://github.com/Valmpyre)
-
-[RIAMU](https://github.com/RlAMU)
-
-[Loki1387](https://github.com/Loki1387)
-
-[Rainy-chaos-sys](https://github.com/Rainy-chaos-sys)
-
-[GothicCowgirl](https://github.com/Gothiccowgirl)
-
-[ThePluralEcosystem](https://github.com/ThePluralEcosystem)
-
-[p0staldud3](https://github.com/p0staldud3) 
-
-[Dazaku](https://github.com/dazaku)
-
-[Anom](https://github.com/ask4socials)
-
-[darlingspider](https://github.com/darlingspider)
-
-[CCaftoncest](https://github.com/CCaftoncest) 
-
-[corroded-coffin](https://github.com/corroded-coffin)
-
-[deadlyclowning](https://github.com/deadlyclowning) *Helped me code this, thanks boo*
-
-And I'm pretty much friends with everyone at the protree (safe server) **Y'all can always INT with me even if I have DNI in my name!**
- 
-</details>
 
 </p>
 
