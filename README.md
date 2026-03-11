@@ -1,4 +1,4 @@
-<img src="https://file.garden/aLcUmNZBvTGYyXJl/jempopup.png" align="left" width="40%"><p align="center"> ${\textsf{\color{#f14398}ɪᴛ'ꜱ ᴛʀᴜʟʏ, ᴛʀᴜʟʏ ᴏᴜᴛʀᴀɢᴇᴏᴜꜱ}}$ <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/barbiepink.gifv" height="40" width="240"/><p align="center"> ${\textsf{\color{#f14398}Cherub}}$ ㅤ/ㅤ<i> Jem </i> <br> They ♡ She⠀⸝⠀18 <br> Traumagenic OSDD ⎯⎯⎯ Host <br> ${\textsf{\color{#f14398}Anti}}$⎯⎯Censhorshipㅤ &&.ㅤ ${\textsf{\color{#f14398}Anti}}$⎯⎯Harassment. <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/barbiepink.gifv" height="40" width="240"/> <br>
+<img src="https://file.garden/aLcUmNZBvTGYyXJl/jempopup.png" align="left" width="40%"><p align="center"> ${\textsf{\color{#f14398}ɪᴛ'ꜱ ᴛʀᴜʟʏ, ᴛʀᴜʟʏ ᴏᴜᴛʀᴀɢᴇᴏᴜꜱ}}$ <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/barbiepink.gifv" height="40" width="240"/><p align="center"> ${\textsf{\color{#f14398}Cherub}}$ ㅤ/ㅤ<i> Jem </i> <br> They ♡ She⠀⸝⠀18 <br> Traumagenic OSDD ⎯⎯⎯ Host <br> ${\textsf{\color{#f14398}Anti}}$⎯⎯Censorshipㅤ &&.ㅤ ${\textsf{\color{#f14398}Anti}}$⎯⎯Harassment. <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/barbiepink.gifv" height="40" width="240"/> <br>
 <br> 
 
 <img src="https://file.garden/aLcUmNZBvTGYyXJl/JemTV.gif" align="right" width="40%"> <p align="center">   ${\textsf{\color{#f14398}ʙᴇɪɴɢ ᴀɴʏᴏɴᴇ ɪ ᴡᴀɴɴᴀ ʙᴇ}}$ <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/barbiepink.gifv" height="40" width="240"/>
@@ -27,7 +27,7 @@
 
 ${\textsf{\color{#f14398}KINS ⊱✿⊰}}$ Jem (JEM) - I am a fictkin of Jem, I am her ^_^
 
-${\textsf{\color{#f14398}BYI ⊱✿⊰}}$ I consider myself Anti-Harassment and pro-fic, here is what I mean by that. [Anti-Harassment Carrd](https://define-proship.carrd.co/) and [Pro-fic Carrd](https://profic101.carrd.co/)  | I'm just an adult who has been around long enough to say I don't care what people ship or read **as long as it's not condoned irl** | *We are a system - only close people get system info, you may ask whos fronting (mostly our host me!).* 
+${\textsf{\color{#f14398}BYI ⊱✿⊰}}$ I consider myself Anti-Harassment and Anti-Censorship .. I'm just an adult who has been around long enough to say I don't care what people ship or read **as long as it's not condoned irl** | *We are a system - only close people get system info, you may ask whos fronting (mostly our host me!).* 
 
 
 
