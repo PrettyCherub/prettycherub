@@ -4,7 +4,7 @@
 <img src="https://file.garden/aLcUmNZBvTGYyXJl/JemTV.gif" align="right" width="40%"> <p align="center">   ${\textsf{\color{#f14398}ʙᴇɪɴɢ ᴀɴʏᴏɴᴇ ɪ ᴡᴀɴɴᴀ ʙᴇ}}$ <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/barbiepink.gifv" height="40" width="240"/>
 <p align="center"> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#f14398}dni.}}$ ღ </summary> basic dni (pedos,racists,ect) <br> under 13ㅤ<br> antis, though im willing to have a cvil conversation. jem doubles <br> ${\textsf{\color{#f14398}i will ragebait you or hide you!}}$ <br> </details> <details align="center">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#f14398}interests.}}$ㅤღ </summary> ${\textsf{\color{#f14398}WWE, JEM, HAZBIN HOTEL, DISPATCH}}$ <br> daz games,ㅤwii sports/wii games,ㅤninah, <br> fnaf,ㅤSupernatural,ㅤMusicals,ㅤInvincible,  more on my carrd below </details> <p align="center"> <img src="https://file.garden/aLcUmNZBvTGYyXJl/barbiepink.gifv" height="40" width="240"/> <p align="center"> ${\textsf{\color{#f14398}ᴀɴᴅ ᴏɴ ᴛᴏᴘ ᴏꜰ ɪᴛ ᴀʟʟ, ʏᴏᴜ'ʀᴇ ʜᴇʀᴇ ᴡɪᴛʜ ᴍᴇ, ᴏʜ!
+<summary> ⎯⎯ㅤ ${\textsf{\color{#f14398}interests.}}$ㅤღ </summary> ${\textsf{\color{#f14398}WWE, JEM, NASCAR + F1, Cookie Run Kingdom}}$ <br> daz games,ㅤwii sports/wii games,ㅤninah, <br> fnaf,ㅤSupernatural,ㅤMusicals,ㅤInvincible,  more on my carrd below </details> <p align="center"> <img src="https://file.garden/aLcUmNZBvTGYyXJl/barbiepink.gifv" height="40" width="240"/> <p align="center"> ${\textsf{\color{#f14398}ᴀɴᴅ ᴏɴ ᴛᴏᴘ ᴏꜰ ɪᴛ ᴀʟʟ, ʏᴏᴜ'ʀᴇ ʜᴇʀᴇ ᴡɪᴛʜ ᴍᴇ, ᴏʜ!
 }}$
 
 <div align="center">
