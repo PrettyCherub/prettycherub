@@ -40,12 +40,18 @@ ${\textsf{\color{#ce2425}BYI ⊱✿⊰}}$ I consider myself Anti-Harassment and 
  <img width="800" src="https://file.garden/aLcUmNZBvTGYyXJl/vampirebnner.pnj"
  </p>
 
+<p align="center">
+ <img width="400" src="https://64.media.tumblr.com/b4d73a7069dbb659fe6c93d85c9a2635/9546658cadc9bf8d-c6/s400x600/7e6575379654acd048a130d9720148b0da6c2b14.gifv"
+ </p>
+<br>
+</br>
 
-<a href="https://PrettyCherub.pythonanywhere.com/link">
-  <img
-    src="https://PrettyCherub.pythonanywhere.com?spin=true&scan=false&eq_color=ce2425&theme=dark"
-    alt="Current Spotify Song"
-  />
+<img src="https://64.media.tumblr.com/083acd3dd67570dfb053a66b0f5f17e1/312735d87c44d4d9-0e/s100x200/426d3753b95c2676cf6bac88c9bf6e212f8d75ba.gifv" align="center">
+<img src="https://64.media.tumblr.com/9038237ad38baef391bad0805ed7d990/312735d87c44d4d9-41/s100x200/1c09393c91605de63987bf833ff419a2b1fff108.gifv" align="center">
+<img src="https://64.media.tumblr.com/1c089fed9e2ea8fbc9411f72ec08026f/312735d87c44d4d9-c7/s100x200/1e6f289362a27d3bd6cd144658c500d3d87178b1.gifv" align="center">
+
+
+
 </a>
 
 <details> 
