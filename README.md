@@ -27,7 +27,7 @@
 
 ${\textsf{\color{#ce2425}KINS ⊱✿⊰}}$ Jem (JEM) - I am a fictkin of Jem, I am her ^_^
 
-${\textsf{\color{#ce2425}BYI ⊱✿⊰}}$ I consider myself Anti-Harassment and Anti-Censorship .. I'm just an adult who has been around long enough to say I don't care what people ship or read **as long as it's not condoned irl** | *We are a system - only close people get system info, you may ask whos fronting (mostly our host me!).* Sometimes I sit at the protree, I am friends with majority of the people who sit there. I don't identify as proship but some of my friends do and if you have an issue with that DNI. Once again, shipping discourse is STUPID.
+${\textsf{\color{#ce2425}BYI ⊱✿⊰}}$ I consider myself Anti-Harassment and Anti-Censorship .. I'm just an adult who has been around long enough to say I don't care what people ship or read **as long as it's not condoned irl** | *We are a system - only close people get system info, you may ask whos fronting (mostly our host me!).* Sometimes I sit at the protree (safe server), I am friends with majority of the people who sit there. I don't identify as proship but some of my friends do and if you have an issue with that DNI. Once again, shipping discourse is STUPID.
 ![](https://64.media.tumblr.com/7e68f04f896567207a5cc6a3582b39f3/12b83be7f3afc336-f7/s400x600/481be073f725ed2ffefcace9d090cc9f94c1ced6.pnj)
 ![](https://64.media.tumblr.com/38ad4af751094eaa29a605bc67d4fd80/12b83be7f3afc336-6c/s250x400/35a531987ae5df49889c3ddcdfdecb5517c15f9a.pnj)
 
