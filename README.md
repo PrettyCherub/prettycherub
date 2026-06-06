@@ -1,4 +1,4 @@
-<img src="https://file.garden/aLcUmNZBvTGYyXJl/minidan.png" align="left" width="40%"><p align="center">  ${\textsf{\color{#ce2425}𝔙𝔢𝔯𝔶 𝔢𝔳𝔦𝔩, 𝔙𝔢𝔯𝔶 𝔫𝔦𝔠𝔢}}$ <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/vampirebnner.pnj" height="40" width="240"/><p align="center"> ${\textsf{\color{#ce2425}Cherub}}$ ㅤ/ㅤ<i> Jem </i> <br> She ♡ They⠀⸝⠀18 <br> Traumagenic OSDD ⎯⎯⎯ Host <br> ${\textsf{\color{#ce2425}Anti}}$⎯⎯Censorshipㅤ &&.ㅤ ${\textsf{\color{#ce2425}Anti}}$⎯⎯Harassment. <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/vampirebnner.pnj" height="40" width="240"/> 
+<img src="https://file.garden/aLcUmNZBvTGYyXJl/minidan.png" align="left" width="40%"><p align="center">  ${\textsf{\color{#ce2425}𝔙𝔢𝔯𝔶 𝔢𝔳𝔦𝔩, 𝔙𝔢𝔯𝔶 𝔫𝔦𝔠𝔢}}$ <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/vampirebnner.pnj" height="40" width="240"/><p align="center"> ${\textsf{\color{#ce2425}Cherub}}$ ㅤ/ㅤ<i> Jem </i> <br> She ♡ They⠀⸝⠀18 <br> Traumagenic DID ⎯⎯⎯ Host <br> ${\textsf{\color{#ce2425}Anti}}$⎯⎯Censorshipㅤ &&.ㅤ ${\textsf{\color{#ce2425}Anti}}$⎯⎯Harassment. <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/vampirebnner.pnj" height="40" width="240"/> 
 
 
 <img src="https://file.garden/aLcUmNZBvTGYyXJl/coffindan.png" align="right" width="40%"> <p align="center"> <img src="https://file.garden/aLcUmNZBvTGYyXJl/vampirebnner.pnj" height="40" width="240"/>
@@ -28,6 +28,24 @@
 
 ![](https://64.media.tumblr.com/7e68f04f896567207a5cc6a3582b39f3/12b83be7f3afc336-f7/s400x600/481be073f725ed2ffefcace9d090cc9f94c1ced6.pnj)
 ![](https://64.media.tumblr.com/38ad4af751094eaa29a605bc67d4fd80/12b83be7f3afc336-6c/s250x400/35a531987ae5df49889c3ddcdfdecb5517c15f9a.pnj)
+
+<details>
+<summary> ⎯⎯ㅤ ${\textsf{\color{#ce2425}Stances}}$ ღ </summary>
+
+• Ship discourse is stupid, idc if someone is a proshipper or darkshipper as long as it remains fiction. Please learn the difference between the two. 
+
+• Neu-Endo, I myself am a traumagenic system meaning we formed because of trauma but I think system discourse is also stupid and don't get involved with it. I have friends who are endos and love them all rhe same.
+
+• Anti Censorship, Idgaf what you read or write as long as you dont condone it. 
+
+• Anti ICE and MAGA
+
+• Pro Palestine + anti zionist
+
+• Pro going outside and understanding that there is a difference between reality and fiction. If you see fiction thats dark and you want to recreate it irl then go touch grass and get help.
+ 
+</details>
+</p>
 
 
 </details>
