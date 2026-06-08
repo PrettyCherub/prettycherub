@@ -4,7 +4,7 @@
 <img src="https://file.garden/aLcUmNZBvTGYyXJl/coffindan.png" align="right" width="40%"> <p align="center"> <img src="https://file.garden/aLcUmNZBvTGYyXJl/vampirebnner.pnj" height="40" width="240"/>
 <p align="center"> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#ce2425}dni.}}$ ღ </summary> basic dni (pedos,racists,ect) <br> under 13ㅤ<br> <br> ${\textsf{\color{#ce2425}i will ragebait you or hide you!}}$ <br> </details> <details align="center">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#ce2425}interests.}}$ㅤღ </summary> ${\textsf{\color{#ce2425}WWE, JEM, NASCAR + F1, Cookie Run Kingdom}}$ <br> daz games,ㅤwii sports/wii games,ㅤninah, <br> fnaf,ㅤSupernatural,ㅤMusicals,ㅤInvincible,  more on my carrd below </details> <p align="center"> <img src="https://file.garden/aLcUmNZBvTGYyXJl/vampirebnner.pnj" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ce2425}𝔜𝔬𝔲 𝔞𝔯𝔢 ℭ𝔘ℜ𝔖𝔈𝔇
+<summary> ⎯⎯ㅤ ${\textsf{\color{#ce2425}interests.}}$ㅤღ </summary> ${\textsf{\color{#ce2425}WWE, JEM, Overwatch + F1, Cookie Run Kingdom}}$ <br> daz games,ㅤwii sports/wii games, good mythical morning, <br> fnaf,ㅤSupernatural,ㅤMusicals,ㅤInvincible,  more on my carrd below </details> <p align="center"> <img src="https://file.garden/aLcUmNZBvTGYyXJl/vampirebnner.pnj" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ce2425}𝔜𝔬𝔲 𝔞𝔯𝔢 ℭ𝔘ℜ𝔖𝔈𝔇
 }}$
 
 <div align="center">
@@ -32,7 +32,7 @@
 <details>
 <summary> ⎯⎯ㅤ ${\textsf{\color{#ce2425}Stances}}$ ღ </summary>
 
-• Ship discourse is stupid, idc if someone is a proshipper or darkshipper as long as it remains fiction. Please learn the difference between the two. 
+• Ship discourse is stupid, idc if someone is a proshipper or darkshipper as long as it remains fiction. Please learn the difference between the two. I am friends with proshippers and darkshippers.. I DO NOT SHIP ANYTHING PROBLEMATIC OR TABOO.
 
 • Neu-Endo, I myself am a traumagenic system meaning we formed because of trauma but I think system discourse is also stupid and don't get involved with it. I have friends who are endos and love them all rhe same.
 
@@ -43,7 +43,8 @@
 • Pro Palestine + anti zionist
 
 • Pro going outside and understanding that there is a difference between reality and fiction. If you see fiction thats dark and you want to recreate it irl then go touch grass and get help.
- 
+
+• Anti-Harassment, I dont harass people for what they ship. Harassing people for fiction is stupid and I wish you had the same energy for REAL VICTIMS (like myself)
 </details>
 </p>
 
@@ -125,7 +126,7 @@
 <details> 
   <summary> ⎯⎯ㅤ ${\textsf{\color{#ce2425}Disorders}}$ ღ </summary>  
 
- MDD + GAD + OSDD + POTS + ADHD
+ MDD + GAD + DID + POTS + ADHD
  
 ![](https://64.media.tumblr.com/72ae63282f1f0e67cd2c371f4ff1da25/a20122e278b4ecb6-93/s250x400/cedbd9e908ebfe6cfd4e9a719595b585ca64321d.gifv) 
 ![](https://64.media.tumblr.com/fbe8066fc817a0706409e684003b71d9/cfda3078bde036fa-b8/s250x400/409248320017354ccd4f7da91ad5b00677615225.gifv) 
