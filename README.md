@@ -32,7 +32,7 @@
 <details>
 <summary> ⎯⎯ㅤ ${\textsf{\color{#ce2425}Stances}}$ ღ </summary>
 
-• Ship discourse is stupid, idc if someone is a proshipper or darkshipper as long as it remains fiction. Please learn the difference between the two. I am friends with proshippers and darkshippers.. I DO NOT SHIP ANYTHING PROBLEMATIC OR TABOO.
+• Ship discourse is stupid, idc if someone is a proshipper or darkshipper as long as it remains fiction. Please learn the difference between the two. I am just an adult who has been around long enough to not care as long as no one is getting hurt. I DO NOT SHIP ANYTHING PROBLEMATIC OR TABOO.
 
 • Neu-Endo, I myself am a traumagenic system meaning we formed because of trauma but I think system discourse is also stupid and don't get involved with it. I have friends who are endos and love them all rhe same.
 
