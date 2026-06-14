@@ -3,8 +3,8 @@
 
 <img src="https://file.garden/aLcUmNZBvTGYyXJl/coffindan.png" align="right" width="40%"> <p align="center"> <img src="https://file.garden/aLcUmNZBvTGYyXJl/vampirebnner.pnj" height="40" width="240"/>
 <p align="center"> <details align="center">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#ce2425}dni.}}$ ღ </summary> basic dni (pedos,racists,ect) <br> under 13ㅤ<br> <br> ${\textsf{\color{#ce2425}i will ragebait you or hide you!}}$ <br> </details> <details align="center">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#ce2425}interests.}}$ㅤღ </summary> ${\textsf{\color{#ce2425}WWE, JEM, Overwatch + F1, Cookie Run Kingdom}}$ <br> daz games,ㅤwii sports/wii games, good mythical morning, <br> fnaf,ㅤSupernatural,ㅤMusicals,ㅤInvincible,  more on my carrd below </details> <p align="center"> <img src="https://file.garden/aLcUmNZBvTGYyXJl/vampirebnner.pnj" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ce2425}𝔜𝔬𝔲 𝔞𝔯𝔢 ℭ𝔘ℜ𝔖𝔈𝔇
+<summary> ⎯⎯ㅤ ${\textsf{\color{#ce2425}dni.}}$ ღ </summary> dnis dont really work imo but basic dni (pedos,racists,ect) <br> under 13ㅤ<br> <br> ${\textsf{\color{#ce2425}i will ragebait you or hide you! follow ur own dni or whatever /gen :3 }}$ <br> </details> <details align="center">
+<summary> ⎯⎯ㅤ ${\textsf{\color{#ce2425}interests.}}$ㅤღ </summary> ${\textsf{\color{#ce2425}WWE, JEM, Overwatch + MLP, Cookie Run Kingdom}}$ <br> daz games,ㅤwii sports/wii games, good mythical morning, <br> fnaf,ㅤSupernatural,ㅤMusicals,ㅤInvincible,  more on my carrd below </details> <p align="center"> <img src="https://file.garden/aLcUmNZBvTGYyXJl/vampirebnner.pnj" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ce2425}𝔜𝔬𝔲 𝔞𝔯𝔢 ℭ𝔘ℜ𝔖𝔈𝔇
 }}$
 
 <div align="center">
