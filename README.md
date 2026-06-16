@@ -8,7 +8,7 @@
 }}$
 
 
-**IMPORTANT:** It was brought to my attention that I am in a persons github known as Sal / Lamb. I do not associate with this person nor agree with what they have done!!! 
+**IMPORTANT:** It was brought to my attention that I am in a persons github known as Sal / Lamb. I do not associate with this person nor agree with what they have done!!! This was the document made on them [Click here](https://docs.google.com/document/d/1lcvPbaeNmeHp9S-HlUh6yykSf6OA_X0vjw36SelCuKE/edit?usp=drivesdk)
 
 
 <div align="center">
