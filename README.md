@@ -7,6 +7,10 @@
 <summary> ⎯⎯ㅤ ${\textsf{\color{#ce2425}interests.}}$ㅤღ </summary> ${\textsf{\color{#ce2425}WWE, JEM, Overwatch + MLP, Cookie Run Kingdom}}$ <br> daz games,ㅤwii sports/wii games, good mythical morning, <br> fnaf,ㅤSupernatural,ㅤMusicals,ㅤInvincible,  more on my carrd below </details> <p align="center"> <img src="https://file.garden/aLcUmNZBvTGYyXJl/vampirebnner.pnj" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ce2425}𝔜𝔬𝔲 𝔞𝔯𝔢 ℭ𝔘ℜ𝔖𝔈𝔇
 }}$
 
+
+**IMPORTANT:** It was brought to my attention that I am in a persons github known as Sal / Lamb. I do not associate with this person nor agree with what they have done!!! 
+
+
 <div align="center">
 
   ![](https://komarev.com/ghpvc/?username=PrettyCherub-username&color=ce2425&label=Fanhausens)
