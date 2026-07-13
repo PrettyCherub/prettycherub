@@ -3,21 +3,7 @@
 
 <img src="https://file.garden/aLcUmNZBvTGYyXJl/coffindan.png" align="right" width="40%"> <p align="center"> <img src="https://file.garden/aLcUmNZBvTGYyXJl/vampirebnner.pnj" height="40" width="240"/>
 <p align="center"> <details align="center">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#ce2425}dni.}}$ ღ </summary> dnis dont really work imo but basic dni (pedos,racists,ect) <br> under 13ㅤ<br> <br> ${\textsf{\color{#ce2425}i will ragebait you or hide you! follow ur own dni or whatever /gen :3 }}$ <br> </details> <details align="center">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#ce2425}interests.}}$ㅤღ </summary> ${\textsf{\color{#ce2425}WWE, JEM, Overwatch + MLP, Cookie Run Kingdom}}$ <br> daz games,ㅤwii sports/wii games, good mythical morning, <br> fnaf,ㅤSupernatural,ㅤMusicals,ㅤInvincible,  more on my carrd below </details> <p align="center"> <img src="https://file.garden/aLcUmNZBvTGYyXJl/vampirebnner.pnj" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ce2425}𝔜𝔬𝔲 𝔞𝔯𝔢 ℭ𝔘ℜ𝔖𝔈𝔇
-}}$
-
-
-**IMPORTANT:** It was brought to my attention that I am in a persons github known as Sal / Lamb. I do not associate with this person nor agree with what they have done!!! This was the document made on them [Click here](https://docs.google.com/document/d/1lcvPbaeNmeHp9S-HlUh6yykSf6OA_X0vjw36SelCuKE/edit?usp=drivesdk)
-
-
-<div align="center">
-
-  ![](https://komarev.com/ghpvc/?username=PrettyCherub-username&color=ce2425&label=Fanhausens)
-</div>
-
-<details>
-<summary> ⎯⎯ㅤ ${\textsf{\color{#ce2425}links}}$ ღ </summary>
+<summary> ⎯⎯ㅤ ${\textsf{\color{#ce2425}dni.}}$ ღ </summary> dnis dont really work imo but basic dni (pedos,racists,ect) <br> under 13 and anyone in the TwinkleS regiment! Heres why: [Click here](https://docs.google.com/document/d/1q_mTt01smA7tKzeJqbBEVa5pjNHu4j8-n1wLvNHah4c/edit?usp=drivesdk) <summary> ⎯⎯ㅤ ${\textsf{\color{#ce2425}links}}$ ღ </summary>
 
 [Strawpage](https://jemsnotebook.straw.page)
 
