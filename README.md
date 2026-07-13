@@ -3,7 +3,7 @@
 
 <img src="https://file.garden/aLcUmNZBvTGYyXJl/coffindan.png" align="right" width="40%"> <p align="center"> <img src="https://file.garden/aLcUmNZBvTGYyXJl/vampirebnner.pnj" height="40" width="240"/>
 <p align="center"> <details align="center">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#ce2425}dni.}}$ ღ </summary> dnis dont really work imo but basic dni (pedos,racists,ect) <br> under 13 and anyone in the TwinkleS regiment! Heres why: [Click here](https://docs.google.com/document/d/1q_mTt01smA7tKzeJqbBEVa5pjNHu4j8-n1wLvNHah4c/edit?usp=drivesdk) <summary> ⎯⎯ㅤ ${\textsf{\color{#ce2425}links}}$ ღ </summary>
+<summary> ⎯⎯ㅤ ${\textsf{\color{#ce2425}dni.}}$ ღ </summary> dnis dont really work imo but basic dni (pedos,racists,ect) <br> under 13 and anyone from the TwinkleS regiment (ask me for the doc) <summary> ⎯⎯ㅤ ${\textsf{\color{#ce2425}links}}$ ღ </summary>
 
 [Strawpage](https://jemsnotebook.straw.page)
 
