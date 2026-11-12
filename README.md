@@ -27,7 +27,7 @@
 
 ${\textsf{\color{#f14398}KINS ⊱✿⊰}}$ Jem (JEM) - I am a fictkin of Jem, I am her ^_^
 
-${\textsf{\color{#f14398}BYI ⊱✿⊰}}$ I consider myself Anti-Harassment and Anti-Censorship .. I'm just an adult who has been around long enough to say I don't care what people ship or read **as long as it's not condoned irl** | *We are a system - only close people get system info, you may ask whos fronting (mostly our host me!).* 
+${\textsf{\color{#f14398}BYI ⊱✿⊰}}$ I consider myself Anti-Harassment and Anti-Censorship .. I'm just an adult who has been around long enough to say I don't care what people ship or read **as long as it's not condoned irl** | *We are a system - only close people get system info, you may ask whos fronting (mostly our host me!).* | Yes I'm chronically online if you couldn't tell, I think using silly and whimsical labels on the internet is cool as someone who is neurodivergent I feel it helps me describe myself better. You don't have to use these labels obviously. Check them out here tho [Click here](https://en.pronouns.page/@PrettyCherub)
 
 
 
@@ -45,19 +45,19 @@ ${\textsf{\color{#f14398}BYI ⊱✿⊰}}$ I consider myself Anti-Harassment and 
 ![](https://64.media.tumblr.com/38ad4af751094eaa29a605bc67d4fd80/12b83be7f3afc336-6c/s250x400/35a531987ae5df49889c3ddcdfdecb5517c15f9a.pnj)
 
 <details>
-<summary> ⎯⎯ㅤ ${\textsf{\color{#f14398}Stances}}$ ღ </summary>
+<summary> ⎯⎯ㅤ ${\textsf{\color{#f14398}Stances (more for ponytown)}}$ ღ </summary>
 
 • Ship discourse is stupid, idc if someone is a proshipper or darkshipper as long as it remains fiction. Please learn the difference between the two. I am just an adult who has been around long enough to not care as long as no one is getting hurt. I DO NOT SHIP ANYTHING PROBLEMATIC OR TABOO.
 
-• Neu-Endo, I myself am a traumagenic system meaning we formed because of trauma but I think system discourse is also stupid and don't get involved with it. I have friends who are endos and love them all rhe same.
+• I don't get involved with system discourse, don't even ask me.
 
-• Anti Censorship, Idgaf what you read or write as long as you dont condone it. 
+• Anti Censorship, Idgaf what you read or write as long as you dont condone it. I might think its weird or it goes against my morals but I'll simply just not interact.
 
-• Anti ICE and MAGA
+• Anti ICE and MAGA (duh) 
 
 • Pro Palestine + anti zionist
 
-• Pro going outside and understanding that there is a difference between reality and fiction. If you see fiction thats dark and you want to recreate it irl then go touch grass and get help.
+• Anti Radqueer + harmful paraphilias
 
 • Anti-Harassment, I dont harass people for what they ship. Harassing people for fiction is stupid and I wish you had the same energy for REAL VICTIMS (like myself)
 </details>
